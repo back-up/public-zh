@@ -1,4 +1,4 @@
-### [2017-04-10](/zh/news/2017/04/10/index.md)
+### [2017-04-10](/news/2017/04/10/index.md)
 
 ##### 大堡礁
 # en Research Council 

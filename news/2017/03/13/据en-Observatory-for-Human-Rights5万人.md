@@ -1,4 +1,4 @@
-### [2017-03-13](/zh/news/2017/03/13/index.md)
+### [2017-03-13](/news/2017/03/13/index.md)
 
 ##### 
 # 据en Observatory for Human Rights.5万人。 

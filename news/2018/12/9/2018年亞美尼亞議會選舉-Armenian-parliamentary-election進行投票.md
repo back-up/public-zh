@@ -1,4 +1,4 @@
-### [2018-12-9](/zh/news/2018/12/9/index.md)
+### [2018-12-9](/news/2018/12/9/index.md)
 
 ##### 
 # 2018年亞美尼亞議會選舉 Armenian parliamentary election進行投票。 

@@ -1,4 +1,4 @@
-### [2017-04-4](/zh/news/2017/04/4/index.md)
+### [2017-04-4](/news/2017/04/4/index.md)
 
 ##### 西雅图
 # 世界上最大的en (tunnel boring machine) (隧道挖掘机),830米的en Way Viaduct replacement tunnel 

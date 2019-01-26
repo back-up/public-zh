@@ -1,4 +1,4 @@
-### [2017-04-11](/zh/news/2017/04/11/index.md)
+### [2017-04-11](/news/2017/04/11/index.md)
 
 ##### Microsoft
 # Microsoft結束對Windows Vista作出擴展支援。 

@@ -1,4 +1,4 @@
-### [2017-02-9](/zh/news/2017/02/9/index.md)
+### [2017-02-9](/news/2017/02/9/index.md)
 
 ##### 
 # 法国en Nuclear Power Plant 
