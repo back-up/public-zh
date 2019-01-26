@@ -1,0 +1,11 @@
+### [2018-10-28](/zh/news/2018/10/28/index.md)
+
+##### 黑森
+# 德國黑森州舉行州議會2018年黑森州議會選舉 state election, 2018 選舉。 
+
+
+
+
+### 信息来源:
+
+1. [Deutsche](https://www.dw.com/en/chancellor-angela-merkels-conservatives-eke-out-win-in-hesse-election/a-46064510)

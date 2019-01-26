@@ -1,0 +1,11 @@
+### [2017-08-4](/zh/news/2017/08/4/index.md)
+
+##### 
+# 2017年盧旺達總統選舉 presidential election, 2017進行投票。 
+
+
+
+
+### 信息来源:
+
+1. [BBC](http://www.bbc.com/news/world-africa-40822530)

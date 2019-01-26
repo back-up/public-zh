@@ -1,0 +1,15 @@
+### [2018-10-31](/zh/news/2018/10/31/index.md)
+
+##### 印度独立运动
+# 纪念印度独立运动领导人、首任印度副总理 Prime Minister of India萨达尔·瓦拉巴伊·帕特尔的团结雕像于古吉拉特邦那尔马达县正式落成。雕像高达182米，是目前全球最高雕像 
+
+
+
+
+### 信息来源:
+
+1. [MSN](https://www.msn.com/en-in/news/newsindia/pm-unveils-sardar-patels-2900-crore-statue-of-unity-today-10-facts/ar-BBP8lo4)
+
+### 有关:
+
+1. [印度古吉拉特邦和喜马偕尔邦邦議會選舉結果公佈，印度人民党在該兩邦取得過半數席位 ](/zh/news/2017/12/18/印度古吉拉特邦和喜马偕尔邦邦議會選舉結果公佈-印度人民党在該兩邦取得過半數席位.md) _上下文: 古吉拉特邦_
