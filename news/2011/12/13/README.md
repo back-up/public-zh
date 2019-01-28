@@ -8,5 +8,9 @@ _上下文: 全國民主聯盟, 昂山素姬, 緬甸_
 ### [法国巴黎一家法院以挪用公款、滥用职权等罪名判处前总统雅克·希拉克两年监禁缓期执行。](/news/2011/12/13/法国巴黎一家法院以挪用公款-滥用职权等罪名判处前总统雅克-希拉克两年监禁缓期执行.md)
 _上下文: 法国总统, 雅克·希拉克_
 
+##### 列日
+### [比利时列日发生一起枪击事件，造成包括枪手在内至少6人死亡，123人受伤。[http:--news.cntv.cn-world-20111214-105625.shtml 中国网络电视台][http:--web.pts.org.tw-php-news-pts_news-detail.php?NEENO=198295 公視新聞網][http:--news.cts.com.tw-cts-general-201112-201112140891724.html 華視新聞][http:--iservice.libertytimes.com.tw-liveNews-news.php?no=579648&type=%E5%9C%8B%E9%9A%9B 自由時報]date=十一月 2017 ](/news/2011/12/13/比利时列日发生一起枪击事件-造成包括枪手在内至少6人死亡-123人受伤-http-newscntvcn-wor.md)
+_上下文: 列日, 枪击事件_
+
 ## [前一天...](/news/2011/12/12/index.md)
 

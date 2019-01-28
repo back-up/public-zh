@@ -1,4 +1,8 @@
 ## [2016-09-7](/news/2016/09/7/index.md)
 
+##### 國際帕拉林匹克委員會
+### [國際帕拉林匹克委員會一致投票决定禁止2016年夏季残疾人奥林匹克运动会俄罗斯代表团 at the 2016 Summer Paralympics [http:--www.cnbc.com-2016-08-07-entire-russian-team-banned-from-paralympics-in-rio-over-doping.html (CNBC)] ](/news/2016/09/7/國際帕拉林匹克委員會一致投票决定禁止2016年夏季残疾人奥林匹克运动会俄罗斯代表团-at-the-2016-Summer.md)
+_上下文: 2016年夏季残疾人奥林匹克运动会, CNBC, 国际体育仲裁院, 國際帕拉林匹克委員會, 瑞士联邦最高法院_
+
 ## [前一天...](/news/2016/09/6/index.md)
 
