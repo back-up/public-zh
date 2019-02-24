@@ -12,5 +12,3 @@ _上下文: 唐納·川普, 联邦政府停擺_
 ### [DeepMind人工智慧AlphaStar在《星海爭霸II》以10：1戰勝人類職業玩家。](/news/2019/01/25/DeepMind人工智慧AlphaStar在-星海爭霸II-以10-1戰勝人類職業玩家.md)
 _上下文: DeepMind, 星海爭霸II_
 
-## [前一天...](/news/2019/01/23/index.md)
-
