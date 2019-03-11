@@ -1,8 +1,8 @@
 ## [2019-03-3](/news/2019/03/3/index.md)
 
 ##### 亚拉巴马州
-### [美國亚拉巴马州遭到龍捲風吹襲，至少23人喪生。 ](/news/2019/03/3/美國亚拉巴马州遭到龍捲風吹襲-至少23人喪生.md)
-_上下文: 亚拉巴马州, 龍捲風吹襲_
+### [美國亚拉巴马州遭到龍捲風吹襲，至少23人喪生。 [https:--www.voanews.com-a-at-least-14-dead-as-storms-possible-tornados-hit-deep-south-4811971.html (美國之音)] ](/news/2019/03/3/美國亚拉巴马州遭到龍捲風吹襲-至少23人喪生-https-wwwvoanewscom-a-at-least.md)
+_上下文: 亚拉巴马州, 美國之音, 龍捲風吹襲_
 
 ##### 2019年愛沙尼亞議會選舉
 ### [2019年愛沙尼亞議會選舉進行投票。 [https:--tw.news.yahoo.com-%E6%84%9B%E6%B2%99%E5%B0%BC%E4%BA%9E%E5%A4%A7%E9%81%B8%E7%99%BB%E5%A0%B4-%E7%96%91%E6%AD%90%E6%A5%B5%E5%8F%B3%E6%B4%BE%E6%8C%91%E6%88%B0%E4%B8%BB%E6%B5%81%E6%94%BF%E9%BB%A8-145002435.html (Yahoo奇摩新聞)] 大選最後由在野改革黨擊敗執政中間黨和極右保守人民黨。 [http:--trad.cn.rfi.fr-contenu-20190304-%E6%84%9B%E6%B2%99%E5%B0%BC%E4%BA%9E%E5%A4%A7%E9%81%B8-%E6%94%B9%E9%9D%A9%E9%BB%A8%E5%8B%9D%E5%87%BA (法國國際廣播電台)] ](/news/2019/03/3/2019年愛沙尼亞議會選舉進行投票-https-twnewsyahoocom-E6-84-9B-E6-B.md)
