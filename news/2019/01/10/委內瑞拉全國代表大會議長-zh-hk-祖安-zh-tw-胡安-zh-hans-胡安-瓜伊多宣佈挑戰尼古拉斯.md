@@ -8,8 +8,8 @@
 
 ### 信息来源:
 
-1. [[[委内瑞拉全国代表大会](http://www.asambleanacional.gob.ve/noticias/_juan-guaido-me-apego-a-los-articulos-333-350-y-233)
-2. [{{link-en](https://www.argusmedia.com/en/news/1826733-parallel-govt-emerging-in-venezuela-update-2?backToResults=true)
+1. [{{link-en](https://www.argusmedia.com/en/news/1826733-parallel-govt-emerging-in-venezuela-update-2?backToResults=true)
+2. [委内瑞拉全国代表大会](http://www.asambleanacional.gob.ve/noticias/_juan-guaido-me-apego-a-los-articulos-333-350-y-233)
 
 ### 有关:
 

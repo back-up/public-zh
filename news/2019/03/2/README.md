@@ -5,8 +5,8 @@
 _上下文: 國事訪問, 平壤, 朝鮮國務委員會委員長, 美朝首腦會談, 越南, 金正恩_
 
 ##### 龙飞船2号
-### [龙飞船2号進行首次無人發射測試。 [https:--www.voanews.com-a-spacex-tests-crew-capsule-in-flight-to-space-station-4810472.html (美國之音)] ](/news/2019/03/2/龙飞船2号進行首次無人發射測試-https-wwwvoanewscom-a-spacex-tests-cre.md)
-_上下文: 美國之音, 龙飞船2号_
+### [龙飞船2号進行首次無人發射測試。 ](/news/2019/03/2/龙飞船2号進行首次無人發射測試.md)
+_上下文: 龙飞船2号_
 
 ## [前一天...](/news/2019/03/1/index.md)
 
