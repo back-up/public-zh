@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [[[Wall](http://www.msn.com/en-us/money/technology/apple-unveils-latest-iphone/ar-AAiBqKi?OCID=ansmsnnews11)
+1. [Wall](http://www.msn.com/en-us/money/technology/apple-unveils-latest-iphone/ar-AAiBqKi?OCID=ansmsnnews11)
 
 ### 有关:
 
