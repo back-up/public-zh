@@ -9,3 +9,7 @@
 ### 信息来源:
 
 1. [The](https://www.theguardian.com/world/2016/nov/27/francois-fillon-on-course-to-win-french-primary-to-be-candidate-for-the-right)
+
+### 有关:
+
+1. [法国总统尼古拉·萨科齐任命弗朗索瓦·菲永为法国总理。](/news/2007/05/17/法国总统尼古拉-萨科齐任命弗朗索瓦-菲永为法国总理.md) _上下文: 弗朗索瓦·菲永_

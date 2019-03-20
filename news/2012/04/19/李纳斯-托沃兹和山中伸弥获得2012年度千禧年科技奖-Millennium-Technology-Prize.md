@@ -9,3 +9,7 @@
 ### 信息来源:
 
 1. [Technology Academy Finland](https://web.archive.org/web/20140117031012/http://www.technologyacademy.fi/blog/2012/04/19/laureates/)
+
+### 有关:
+
+1. [日本科学家山中伸弥与英国科学家约翰·格登（John B. Gurdon）共同获得2012年诺贝尔生理学或医学奖。](/news/2012/10/8/日本科学家山中伸弥与英国科学家约翰-格登-John-B-Gurdon-共同获得2012年诺贝尔生理学或医学奖.md) _上下文: 山中伸弥_

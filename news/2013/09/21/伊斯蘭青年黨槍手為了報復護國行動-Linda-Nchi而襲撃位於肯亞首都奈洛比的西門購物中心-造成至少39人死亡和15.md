@@ -1,0 +1,22 @@
+### [2013-09-21](/news/2013/09/21/index.md)
+
+##### 伊斯蘭青年黨
+#  伊斯蘭青年黨槍手為了報復護國行動 Linda Nchi而襲撃位於肯亞首都奈洛比的西門購物中心，造成至少39人死亡和150人受傷，隨後槍手繼續留在商場內與軍警對峙。
+
+
+
+
+### 信息来源:
+
+1. [BBC新聞](http://www.bbc.co.uk/news/world-africa-24225319)
+2. [愛爾蘭廣播電視](http://www.rte.ie/news/2013/0921/475630-kenya-attack/)
+3. [有線電視新聞網](http://edition.cnn.com/2013/09/21/world/africa/kenya-mall-gunbattle/index.html)
+4. [法國24](https://web.archive.org/web/20150601221956/http://www.france24.com/en/breaking/20130921-gunbattle-breaks-out-shopping-mall-kenyan-capital-nairobi?ns_campaign=al_en&ns_mchannel=email_marketing&ns_source=AL_20130921_1246&ns_linkname=20130921_breaking_news&ns_fee=0&f24_member_id=1080960490882)
+
+### 有关:
+
+1. [ 一架運輸機在肯雅首都奈洛比撞上一棟商用樓宇後解體墜毀，四人罹難。 ](/news/2014/07/2/一架運輸機在肯雅首都奈洛比撞上一棟商用樓宇後解體墜毀-四人罹難.md) _上下文: -{zh-tw:肯亞; zh-hk:肯雅; zh-sg:肯雅; zh-cn:肯尼亚;}-, 奈洛比_
+2. [ 肯亞奈洛比的一輛巴士遭到手榴彈襲擊，造成至少四人死亡，十五人受傷 ](/news/2013/12/14/肯亞奈洛比的一輛巴士遭到手榴彈襲擊-造成至少四人死亡-十五人受傷.md) _上下文: -{zh-tw:肯亞; zh-hk:肯雅; zh-sg:肯雅; zh-cn:肯尼亚;}-, 奈洛比_
+3. [ 在肯亞奈洛比發生的購物中心襲擊事件其所造成的死亡人數增加至59人死亡以及175人受傷。](/news/2013/09/22/在肯亞奈洛比發生的購物中心襲擊事件其所造成的死亡人數增加至59人死亡以及175人受傷.md) _上下文: -{zh-tw:肯亞; zh-hk:肯雅; zh-sg:肯雅; zh-cn:肯尼亚;}-, 奈洛比_
+4. [ -{zh-tw:肯亞; zh-hk:肯雅; zh-sg:肯雅; zh-cn:肯尼亚;}-加里薩大學遭青年黨槍手襲擊，至少147人喪生](/news/2015/04/2/zh-tw-肯亞-zh-hk-肯雅-zh-sg-肯雅-zh-cn-肯尼亚-加里薩大學遭青年黨槍手襲擊-至.md) _上下文: -{zh-tw:肯亞; zh-hk:肯雅; zh-sg:肯雅; zh-cn:肯尼亚;}-_
+5. [ 一輛貨運火車衝撞肯亞基貝拉貧民窟，多人受傷 ](/news/2013/12/22/一輛貨運火車衝撞肯亞基貝拉貧民窟-多人受傷.md) _上下文: -{zh-tw:肯亞; zh-hk:肯雅; zh-sg:肯雅; zh-cn:肯尼亚;}-_
