@@ -12,5 +12,5 @@ _上下文: 12月17日, GRAIL, 美國-{zh-tw:國家航空暨太空總署; zh-hk:
 ### [Google地圖軟體重新回歸至iPhone平台介面，今成為蘋果（Apple）iTunes商店的免費應用程式下載冠軍。](/news/2012/12/13/Google地圖軟體重新回歸至iPhone平台介面-今成為蘋果-Apple-iTunes商店的免費應用程式下載冠軍.md)
 _上下文: Google地圖, iPhone, iTunes, 蘋果公司_
 
-## [前一天...](/news/2012/11/29/index.md)
+## [前一天...](/news/2012/12/10/index.md)
 
