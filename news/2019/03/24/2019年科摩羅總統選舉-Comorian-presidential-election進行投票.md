@@ -1,0 +1,11 @@
+### [2019-03-24](/news/2019/03/24/index.md)
+
+##### 
+# 2019年科摩羅總統選舉 Comorian presidential election進行投票。 
+
+
+
+
+### 信息来源:
+
+1. [BBC](https://www.bbc.co.uk/news/world-africa-47685991)
