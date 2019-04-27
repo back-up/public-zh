@@ -10,7 +10,7 @@ _上下文: 2012年至2013年埃及抗議活動, 抗議活動_
 
 ##### 穆斯林
 ### [ 追隨穆斯林分離主義領導者努爾·米蘇阿里 Misuari的菲律賓伊斯蘭叛亂 insurgency in the Philippines City crisis](/news/2013/09/9/追隨穆斯林分離主義領導者努爾-米蘇阿里-Misuari的菲律賓伊斯蘭叛亂-insurgency-in-the-Phil.md)
-_上下文: 三寶顏, 穆斯林, 菲律賓_
+_上下文: 三寶顏, 穆斯林, 菲律宾_
 
 ##### 博科聖地
 ### [ 博科聖地與博爾諾州當地的治安部隊奈及利亞伊斯蘭叛亂 insurgency in Nigeria](/news/2013/09/9/博科聖地與博爾諾州當地的治安部隊奈及利亞伊斯蘭叛亂-insurgency-in-Nigeria.md)

@@ -8,9 +8,9 @@ _上下文: -{zh-tw:肯亞; zh-hk:肯雅; zh-sg:肯雅; zh-cn:肯尼亚;}-, 伊�
 ### [ 叛亂份子於伊拉克各地發起一系列2013年9月21日伊拉克襲擊行動 September 2013 Iraq attacks](/news/2013/09/21/叛亂份子於伊拉克各地發起一系列2013年9月21日伊拉克襲擊行動-September-2013-Iraq-attack.md)
 _上下文: 巴格達, 武裝叛亂份子, 萨德尔城_
 
-##### 菲律賓
+##### 菲律宾
 ### [ 菲律賓伊斯蘭叛亂 insurgency in the Philippines City crisis](/news/2013/09/21/菲律賓伊斯蘭叛亂-insurgency-in-the-Philippines-City-crisis.md)
-_上下文: 三寶顏, 菲律賓, 菲律賓陸軍部隊_
+_上下文: 三寶顏, 菲律宾, 菲律賓陸軍部隊_
 
 ## [前一天...](/news/2013/09/15/index.md)
 
