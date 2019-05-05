@@ -1,0 +1,11 @@
+### [2019-05-5](/news/2019/05/5/index.md)
+
+##### 
+# 2019年巴拿馬大選 Panamanian general election進行投票。 
+
+
+
+
+### 信息来源:
+
+1. [BBC](https://www.bbc.co.uk/news/world-latin-america-48134351)
