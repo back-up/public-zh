@@ -5,7 +5,7 @@
 _上下文: 东盟, 缅甸_
 
 ##### 法國
-### [法国铁路运输部门的工人大罢工进入第二周，公务员和大学生等加入。[http:--www.bloomberg.com-apps-news?pid=20601087&sid=a1CzmhPUcoJc&refer=home 彭博][http:--web.xwwb.com-wbnews.php?db=3&thisid=113380 SMG 新闻午报]date=十一月 2017 ](/news/2007/11/20/法国铁路运输部门的工人大罢工进入第二周-公务员和大学生等加入-http-wwwbloombergcom-app.md)
+### [法国铁路运输部门的工人大罢工进入第二周，公务员和大学生等加入。](/news/2007/11/20/法国铁路运输部门的工人大罢工进入第二周-公务员和大学生等加入.md)
 _上下文: 公务员, 法國, 罢工, 铁路_
 
 ##### 东盟

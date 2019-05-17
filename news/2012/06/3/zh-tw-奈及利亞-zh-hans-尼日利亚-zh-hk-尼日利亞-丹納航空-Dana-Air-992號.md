@@ -9,7 +9,7 @@
 ### 信息来源:
 
 1. [BBC](http://www.bbc.co.uk/news/world-africa-18316130)
-2. [中央社](http://www.cna.com.tw/News/aOPL/201206040078.aspx)
+2. [中央社](https://web.archive.org/web/20120605205827/http://www.cna.com.tw/News/aOPL/201206040078.aspx)
 
 ### 有关:
 

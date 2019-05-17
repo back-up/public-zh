@@ -13,7 +13,7 @@ _上下文: UFJ銀行, 三菱東京UFJ銀行, 日本, 東京三菱銀行_
 _上下文: 中華民國國軍_
 
 ##### 澳大利亚
-### [澳大利亞悉尼氣溫高達攝氏45度，是歷來最熱的元旦。在熱風吹拂下，中海岸及獲嘉獲嘉以北的山林大火燒毀多处民宅。[https:--web.archive.org-web-20060103093324-http:--hk.news.yahoo.com-060101-3-1k148.html Yahoo!香港]（澳洲星島 [http:--www.singtao.com.au-AUSTRALIAnews-public-article_v.cfm?articleid=71475&intcatid=1]date=十一月 2017 [http:--www.singtao.com.au-AUSTRALIAnews-public-article_v.cfm?articleid=71469&intcatid=1]date=十一月 2017 [http:--www.singtao.com.au-AUSTRALIAnews-public-article_v.cfm?articleid=71471&intcatid=2]date=十一月 2017 ）](/news/2006/01/1/澳大利亞悉尼氣溫高達攝氏45度-是歷來最熱的元旦-在熱風吹拂下-中海岸及獲嘉獲嘉以北的山林大火燒毀多处民宅-https.md)
+### [澳大利亞悉尼氣溫高達攝氏45度，是歷來最熱的元旦。在熱風吹拂下，中海岸及獲嘉獲嘉以北的山林大火燒毀多处民宅。[https:--web.archive.org-web-20060103093324-http:--hk.news.yahoo.com-060101-3-1k148.html Yahoo!香港]（澳洲星島 [https:--web.archive.org-web-20070928164054-http:--www.singtao.com.au-AUSTRALIAnews-public-article_v.cfm?articleid=71475&intcatid=1][https:--web.archive.org-web-20070928164028-http:--www.singtao.com.au-AUSTRALIAnews-public-article_v.cfm?articleid=71469&intcatid=1][https:--web.archive.org-web-20070928164047-http:--www.singtao.com.au-AUSTRALIAnews-public-article_v.cfm?articleid=71471&intcatid=2]）](/news/2006/01/1/澳大利亞悉尼氣溫高達攝氏45度-是歷來最熱的元旦-在熱風吹拂下-中海岸及獲嘉獲嘉以北的山林大火燒毀多处民宅-https.md)
 _上下文: 中海岸, 元旦, 悉尼, 攝氏, 澳大利亚, 獲嘉獲嘉_
 
 ##### 瑞士
