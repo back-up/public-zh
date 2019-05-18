@@ -1,7 +1,7 @@
 ## [2019-01-8](/news/2019/01/8/index.md)
 
 ##### 吉田沙保里
-### [ 日本女子摔跤運動員吉田沙保里宣佈退役。 [https:--tchina.kyodonews.net-news-2019-01-d05bcd5d4e3d.html 日本女子摔跤名將吉田沙保里透露退役決定] ](/news/2019/01/8/日本女子摔跤運動員吉田沙保里宣佈退役-https-tchinakyodonewsnet-news-2019.md)
+### [ 日本女子摔跤運動員吉田沙保里宣佈退役。 url=https:--tchina.kyodonews.net-news-2019-01-d05bcd5d4e3d.html :--web.archive.org-web-20190110013807-https:--tchina.kyodonews.net-news-2019-01-d05bcd5d4e3d.html ](/news/2019/01/8/日本女子摔跤運動員吉田沙保里宣佈退役-url-https-tchinakyodonewsnet-news-2.md)
 _上下文: 吉田沙保里_
 
 ##### 中共中央对外联络部

@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [立場新聞  ](https://www.thestandnews.com/international/%E4%B8%AD%E5%9C%8B%E6%94%B9%E5%88%A4%E5%8A%A0%E4%BA%BA%E6%AD%BB%E5%88%91-%E6%9D%9C%E9%AD%AF%E5%A4%9A%E6%96%A5%E4%BB%BB%E6%84%8F%E5%88%A4%E5%88%91-%E5%8A%A0%E6%8B%BF%E5%A4%A7%E8%AD%A6%E5%91%8A%E5%9C%8B%E6%B0%91%E9)
+1. [link|date=2019年5月 |bot=InternetArchiveBot |fix-attempted=yes }} 立場新聞 ](https://www.thestandnews.com/international/%E4%B8%AD%E5%9C%8B%E6%94%B9%E5%88%A4%E5%8A%A0%E4%BA%BA%E6%AD%BB%E5%88%91-%E6%9D%9C%E9%AD%AF%E5%A4%9A%E6%96%A5%E4%BB%BB%E6%84%8F%E5%88%A4%E5%88%91-%E5%8A%A0%E6%8B%BF%E5%A4%A7%E8%AD%A6%E5%91%8A%E5%9C%8B%E6%B0%91%E9)
 
 ### 有关:
 
