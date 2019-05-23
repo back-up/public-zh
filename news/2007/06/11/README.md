@@ -10,7 +10,7 @@ _上下文: 320年, 羅馬市, 羅馬重生1.0_
 
 ##### Flickr
 ### [Flickr在中国大陆被屏蔽，无法看到图片。[http:--news.bbc.co.uk-chinese-simp-hi-newsid_6740000-newsid_6746200-6746271.stm BBC中文网]、[http:--www.rfa.org-mandarin-shenrubaodao-2007-06-11-Flickr- RFA]date=十一月 2017 ](/news/2007/06/11/Flickr在中国大陆被屏蔽-无法看到图片-http-newsbbccouk-chinese-simp-hi.md)
-_上下文: Flickr, 中國, 屏蔽_
+_上下文: Flickr, 中國大陸, 屏蔽_
 
 ##### 中國國民黨
 ### [代表國民黨參選2008年台灣總統大選的前台北市長馬英九，於晚間開始進行為期兩天兩夜的印度新加坡參訪之旅，並於出發前舉行中外記者會，與國際媒體關於其參選政見進行座談。而民主進步黨提名的總統參選人、前行政院長謝長廷也於同時間召開同類型的記者會說明其政策。[http:--news.chinatimes.com-2007Cti-2007Cti-Rtn-2007Cti-Rtn-Content-0,4526,110101+112007061100942,00.html 中時電子報]date=2018年5月 [http:--www.epochtimes.com-b5-7-6-11-n1740493.htm 大紀元時報][http:--news.chinatimes.com-2007Cti-2007Cti-News-2007Cti-News-Content-0,4521,130501+132007061200981,00.html 中央社]date=2018年5月 ](/news/2007/06/11/代表國民黨參選2008年台灣總統大選的前台北市長馬英九-於晚間開始進行為期兩天兩夜的印度新加坡參訪之旅-並於出發前舉行中.md)
