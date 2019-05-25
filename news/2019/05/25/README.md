@@ -1,12 +1,12 @@
 ## [2019-05-25](/news/2019/05/25/index.md)
 
 ##### 外交部
-### [中華民國外交部將「北美事務協調委員會」（Coordination Council for North American Affairs）更名「台灣美國事務委員會」（Taiwan Council for U.S. Affairs）。 ](/news/2019/05/25/中華民國外交部將-北美事務協調委員會-Coordination-Council-for-North-American.md)
+### [中華民國外交部將「北美事務協調委員會」（Coordination Council for North American Affairs）更名「臺灣美國事務委員會」（Taiwan Council for U.S. Affairs）。 ](/news/2019/05/25/中華民國外交部將-北美事務協調委員會-Coordination-Council-for-North-American.md)
 _上下文: 外交部_
 
 ##### 唐納·川普
-### [美國總統唐納·川普啟程前往日本，預計進行4天國事訪問。 ](/news/2019/05/25/美國總統唐納-川普啟程前往日本-預計進行4天國事訪問.md)
-_上下文: 唐納·川普, 日本_
+### [美國總統唐納·川普啟程前往日本與首相安倍晉三、天皇德仁見面，進行4天貿易與軍事議題的訪談。 ](/news/2019/05/25/美國總統唐納-川普啟程前往日本與首相安倍晉三-天皇德仁見面-進行4天貿易與軍事議題的訪談.md)
+_上下文: 唐納·川普, 安倍晉三, 德仁, 日本_
 
 ##### 峇里島
 ### [印度尼西亞峇里島阿貢火山噴發，9個村莊被火山灰覆蓋。 ](/news/2019/05/25/印度尼西亞峇里島阿貢火山噴發-9個村莊被火山灰覆蓋.md)
