@@ -9,6 +9,7 @@
 ### 信息来源:
 
 1. [中央廣播電臺](https://www.rti.org.tw/news/view/id/2021973)
+2. [中央廣播電臺](https://www.rti.org.tw/news/view/id/2021992)
 
 ### 有关:
 
