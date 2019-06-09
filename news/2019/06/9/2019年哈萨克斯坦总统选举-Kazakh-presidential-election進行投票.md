@@ -1,0 +1,11 @@
+### [2019-06-9](/news/2019/06/9/index.md)
+
+##### 
+# 2019年哈萨克斯坦总统选举 Kazakh presidential election進行投票。 
+
+
+
+
+### 信息来源:
+
+1. [VOA](https://www.voanews.com/a/4951676.html)
