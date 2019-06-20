@@ -8,4 +8,4 @@
 
 ### 有关:
 
-1. [ 波士頓環球報引述麻州主街公平聯盟(Massachusetts Main Street Fairness Coalition)公佈一報告分析顯示，當地因網上銷售稅的法律漏洞，致當地州稅收損失3億8,700萬美元。也對當地企業造成2億8,000萬美元之損失，另減損2,000個工作機會。](/news/2012/11/14/波士頓環球報引述麻州主街公平聯盟-Massachusetts-Main-Street-Fairness-Coaliti.md) _上下文: 波士頓_
+1. [ 波士頓環球報引述麻州主街公平聯盟(Massachusetts Main Street Fairness Coalition)公佈一報告分析顯示，當地因網上銷售稅的法律漏洞，致當地州稅收損失3億8,700萬美元。也對當地企業造成2億8,000萬美元之損失，另減損2,000個工作機會。](/news/2012/11/14/波士頓環球報引述麻州主街公平聯盟-Massachusetts-Main-Street-Fairness-Coaliti.md) _消息: 波士頓_

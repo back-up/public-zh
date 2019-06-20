@@ -2,11 +2,11 @@
 
 ##### 说唱歌手
 ### [英国说唱歌手Dua Lipa上海晚间演唱會，据现场歌迷反映，演唱会期间保安不让歌迷站起来听歌，保安大骂歌迷还向其竖中指，最后多名保安上阵将歌迷拉拽抬离现场并摔在地上，现场一度混乱，Dua Lipa在台上有注意到场下的情况，交涉无果，最后在演唱会结束时，更在台上落泪 ](/news/2018/09/12/英国说唱歌手Dua-Lipa上海晚间演唱會-据现场歌迷反映-演唱会期间保安不让歌迷站起来听歌-保安大骂歌迷还向其竖中指.md)
-_上下文: Dua Lipa, 说唱歌手_
+_消息: Dua Lipa, 说唱歌手_
 
 ##### 苹果公司
 ### [苹果公司在苹果园区史蒂夫·乔布斯剧场召开发布会，公布新款iPhone XR、iPhone XS、iPhone XS Max和Apple Watch Series 4 ](/news/2018/09/12/苹果公司在苹果园区史蒂夫-乔布斯剧场召开发布会-公布新款iPhone-XR-iPhone-XS-iPhone-XS-Ma.md)
-_上下文: Apple Watch Series 4, iPhone XR, iPhone XS, 苹果公司, 苹果园区_
+_消息: Apple Watch Series 4, iPhone XR, iPhone XS, 苹果公司, 苹果园区_
 
 ## [前一天...](/news/2018/09/11/index.md)
 
