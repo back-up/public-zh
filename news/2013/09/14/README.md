@@ -6,7 +6,7 @@ _消息: 三寶顏, 莫洛民族解放陣線, 菲律宾, 菲律賓陸軍部隊_
 
 ##### 美國
 ### [ 美國和俄羅斯就敘利亞化學武器問題達成協議。《[http:--www.washingtontimes.com-news-2013-sep-14-us-russia-reach-deal-syria-chemical-weapons- 華盛頓時報]》](/news/2013/09/14/美國和俄羅斯就敘利亞化學武器問題達成協議-http-wwwwashingtontimescom-news.md)
-_消息: 俄羅斯, 叙利亚内战, 美國_
+_消息: 俄罗斯, 叙利亚内战, 美國_
 
 ## [前一天...](/news/2013/09/13/index.md)
 

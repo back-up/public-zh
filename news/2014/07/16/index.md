@@ -18,19 +18,19 @@ _消息: TGV高速列車, 法國, 當吉恩, 省際列車_
 
 ##### 马来西亚航空17号班机空难
 ### [ 载有283名乘客和15名机组的马来西亚航空17号班机於乌克兰边境遭击落。 俄羅斯媒體報道，機上乘客和機組人員全部罹難。 [http:--www.channelnewsasia.com-news-asiapacific-malaysian-airliner-1269758.html (url=https:--web.archive.org-web-20140719232729-http:--www.channelnewsasia.com-news-asiapacific-malaysian-airliner-1269758.html )] 有烏克蘭親俄武裝分子報道指，客機可能被武裝分子錯誤擊落。 [http:--www.channelnewsasia.com-news-asiapacific-rebel-site-suggests-1269876.html (url=https:--web.archive.org-web-20140719232740-http:--www.channelnewsasia.com-news-asiapacific-rebel-site-suggests-1269876.html )] 俄羅斯總統普京譴責烏克蘭當局，聲稱烏國要為空難負責。 [http:--www3.nhk.or.jp-nhkworld-english-news-20140718_17.html (url=https:--web.archive.org-web-20140724224346-http:--www3.nhk.or.jp-nhkworld-english-news-20140718_17.html )] 烏克蘭總統彼得·波羅申科形容是次空難為「恐怖攻擊」。同時，有多家航空公司宣布其客機將會避免飛越烏克蘭東部。 美國聯邦航空總署宣布，美國多家航空公司已經自發性同意，使用不越過烏克蘭接壤俄羅斯邊境的航線。 美國聯邦航空總署宣布，美國多家航空公司已經自發性同意，使用不越過烏克蘭接壤俄羅斯邊境的航線。](/news/2014/07/16/载有283名乘客和15名机组的马来西亚航空17号班机於乌克兰边境遭击落-俄羅斯媒體報道-機上乘客和機組人員全部罹難.md)
-_消息: 乌克兰总统, 俄羅斯, 彼得·波罗申科, 总统, 普京, 烏克蘭, 美國聯邦航空總署, 马来西亚航空17号班机空难_
+_消息: 乌克兰总统, 俄罗斯, 彼得·波罗申科, 总统, 普京, 烏克蘭, 美國聯邦航空總署, 马来西亚航空17号班机空难_
 
 ##### 马来西亚航空17号班机空难
 ### [ 载有283名乘客和15名机组的马来西亚航空17号班机於乌克兰边境遭击落。 俄羅斯媒體報道，機上乘客和機組人員全部罹難。 [http:--www.channelnewsasia.com-news-asiapacific-malaysian-airliner-1269758.html (url=https:--web.archive.org-web-20140719232729-http:--www.channelnewsasia.com-news-asiapacific-malaysian-airliner-1269758.html )] 有烏克蘭親俄武裝分子報道指，客機可能被武裝分子錯誤擊落。 [http:--www.channelnewsasia.com-news-asiapacific-rebel-site-suggests-1269876.html (url=https:--web.archive.org-web-20140719232740-http:--www.channelnewsasia.com-news-asiapacific-rebel-site-suggests-1269876.html )] 俄羅斯總統普京譴責烏克蘭當局，聲稱烏國要為空難負責。 [http:--www3.nhk.or.jp-nhkworld-english-news-20140718_17.html (url=https:--web.archive.org-web-20140724224346-http:--www3.nhk.or.jp-nhkworld-english-news-20140718_17.html )] 烏克蘭總統彼得·波羅申科形容是次空難為「恐怖攻擊」。同時，有多家航空公司宣布其客機將會避免飛越烏克蘭東部。 美國聯邦航空總署宣布，美國多家航空公司已經自發性同意，使用不越過烏克蘭接壤俄羅斯邊境的航線。 烏克蘭總統彼得·波羅申科形容是次空難為「恐怖攻擊」。同時，有多家航空公司宣布其客機將會避免飛越烏克蘭東部。](/news/2014/07/16/载有283名乘客和15名机组的马来西亚航空17号班机於乌克兰边境遭击落-俄羅斯媒體報道-機上乘客和機組人員全部罹難.md)
-_消息: 乌克兰总统, 俄羅斯, 彼得·波罗申科, 总统, 普京, 烏克蘭, 美國聯邦航空總署, 马来西亚航空17号班机空难_
+_消息: 乌克兰总统, 俄罗斯, 彼得·波罗申科, 总统, 普京, 烏克蘭, 美國聯邦航空總署, 马来西亚航空17号班机空难_
 
 ##### 马来西亚航空17号班机空难
 ### [ 载有283名乘客和15名机组的马来西亚航空17号班机於乌克兰边境遭击落。 俄羅斯媒體報道，機上乘客和機組人員全部罹難。 ](/news/2014/07/16/载有283名乘客和15名机组的马来西亚航空17号班机於乌克兰边境遭击落-俄羅斯媒體報道-機上乘客和機組人員全部罹難.md)
 _消息: 烏克蘭, 马来西亚航空17号班机空难_
 
-##### 俄羅斯
+##### 俄罗斯
 ### [ 载有283名乘客和15名机组的马来西亚航空17号班机於乌克兰边境遭击落。 俄羅斯媒體報道，機上乘客和機組人員全部罹難。 [http:--www.channelnewsasia.com-news-asiapacific-malaysian-airliner-1269758.html (url=https:--web.archive.org-web-20140719232729-http:--www.channelnewsasia.com-news-asiapacific-malaysian-airliner-1269758.html )] 有烏克蘭親俄武裝分子報道指，客機可能被武裝分子錯誤擊落。 [http:--www.channelnewsasia.com-news-asiapacific-rebel-site-suggests-1269876.html (url=https:--web.archive.org-web-20140719232740-http:--www.channelnewsasia.com-news-asiapacific-rebel-site-suggests-1269876.html )] 俄羅斯總統普京譴責烏克蘭當局，聲稱烏國要為空難負責。 [http:--www3.nhk.or.jp-nhkworld-english-news-20140718_17.html (url=https:--web.archive.org-web-20140724224346-http:--www3.nhk.or.jp-nhkworld-english-news-20140718_17.html )] 烏克蘭總統彼得·波羅申科形容是次空難為「恐怖攻擊」。同時，有多家航空公司宣布其客機將會避免飛越烏克蘭東部。 美國聯邦航空總署宣布，美國多家航空公司已經自發性同意，使用不越過烏克蘭接壤俄羅斯邊境的航線。 载有283名乘客和15名机组的马来西亚航空17号班机於乌克兰边境遭击落。](/news/2014/07/16/载有283名乘客和15名机组的马来西亚航空17号班机於乌克兰边境遭击落-俄羅斯媒體報道-機上乘客和機組人員全部罹難.md)
-_消息: 乌克兰总统, 俄羅斯, 彼得·波罗申科, 总统, 普京, 烏克蘭, 美國聯邦航空總署, 马来西亚航空17号班机空难_
+_消息: 乌克兰总统, 俄罗斯, 彼得·波罗申科, 总统, 普京, 烏克蘭, 美國聯邦航空總署, 马来西亚航空17号班机空难_
 
 ##### 微軟
 ### [ 有消息指，微軟快將進行公司史上最大規模的裁員行動。](/news/2014/07/16/有消息指-微軟快將進行公司史上最大規模的裁員行動.md)
