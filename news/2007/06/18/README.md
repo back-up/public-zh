@@ -12,9 +12,9 @@ _消息: 儿童色情, 嫌犯, 英國, 警方_
 ### [由《外交政策》（Foreign Policy）雜誌及和平基金會（the Fund for Peace）所編製的2007年衰敗國家指數（Failed States Index）的報告稱，伊拉克已成為全球第二不穩定的國家，僅次於非洲的蘇丹。[http:--tw.news.yahoo.com-article-url-d-a-070619-16-g1ls.html 路透社]date=十一月 2017 ](/news/2007/06/18/由-外交政策-Foreign-Policy-雜誌及和平基金會-the-Fund-for-Peace-所編製的2007年.md)
 _消息: 伊拉克, 和平基金會, 外交政策, 蘇丹, 衰敗國家指數, 非洲_
 
-##### 韩国
+##### 韓國
 ### [韓國首位女總理韓明淑宣布，她將參加12月的總統選舉。[http:--tw.news.yahoo.com-article-url-d-a-070618-16-g0mb.html 路透社]date=十一月 2017 ](/news/2007/06/18/韓國首位女總理韓明淑宣布-她將參加12月的總統選舉-http-twnewsyahoocom-article.md)
-_消息: 韓明淑, 韩国_
+_消息: 韓國, 韓明淑_
 
 ##### 泰國
 ### [泰國检察总长宣布将正式起诉前總理他信。](/news/2007/06/18/泰國检察总长宣布将正式起诉前總理他信.md)

@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [美國之音](http://www.voanews.com/content/gunmen-kill-iraqi-police-officer-and-family/1663557.html)
+1. [美國之音](https://web.archive.org/web/20130610044346/http://www.voanews.com/content/gunmen-kill-iraqi-police-officer-and-family/1663557.html)
 
 ### 有关:
 
