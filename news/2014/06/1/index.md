@@ -74,9 +74,9 @@ _消息: 加拿大皇家骑警, 蒙克顿_
 ### [ 巴基斯坦警方已逮捕多名参与投石杀人事件的人士，总羁押人数达到12名。 ](/news/2014/06/1/巴基斯坦警方已逮捕多名参与投石杀人事件的人士-总羁押人数达到12名.md)
 _消息: 巴基斯坦_
 
-##### 中国
+##### 中华人民共和国
 ### [ 中华人民共和国声称已就最近在新疆地区策划恐怖袭击事件，逮捕29人。 ](/news/2014/06/1/中华人民共和国声称已就最近在新疆地区策划恐怖袭击事件-逮捕29人.md)
-_消息: 中国_
+_消息: 中华人民共和国_
 
 ##### 愛爾蘭
 ### [ 一名爱尔兰大主教，宣称天主教教会没有将796名儿童埋葬在蒂厄姆某座建筑的废弃混凝土化粪池中的记录。 [http:--www.bbc.com-news-world-europe-27710206 (http:--edition.cnn.com-2014-06-04-world-europe-ireland-children-bodies-tuam- (CNN) http:--www.theguardian.com-commentisfree-2014-jun-04-children-galway-mass-graves-ireland-catholic-church (卫报))] ](/news/2014/06/1/一名爱尔兰大主教-宣称天主教教会没有将796名儿童埋葬在蒂厄姆某座建筑的废弃混凝土化粪池中的记录-http-w.md)
@@ -190,7 +190,7 @@ _消息: Akhilesh Yadav, Indian Police Service, 吊死, 水炮, 芒果, 賤民, 
 
 ##### 中國大陸
 ### [ 中國大陸用戶自上周末開始，無法使用Google搜索、Google翻譯、GMail等服務，上一次是在2012年，封鎖時間為12小時左右。Google聲明稱，經過全面檢查，已確認問題不在他們這邊；而中國官員拒絕對此（封鎖）發表任何評論。路透社再引述一名用戶在中國獨有的微博（類似Twitter）中的留言：「那些官員快把我逼瘋了!」 ](/news/2014/06/1/中國大陸用戶自上周末開始-無法使用Google搜索-Google翻譯-GMail等服務-上一次是在2012年-封鎖時間.md)
-_消息: GMail, Google, Google搜索, Google翻譯, Twitter, 中国, 中國大陸, 微博_
+_消息: GMail, Google, Google搜索, Google翻譯, Twitter, 中华人民共和国, 中國大陸, 微博_
 
 ##### 巴勒斯坦
 ### [ 巴勒斯坦的新團結政府（Palestinian unity government）內閣今日正式宣布就職。監誓人為巴勒斯坦民族权力机构主席马哈茂德·阿巴斯，內閣總理由拉米·哈马达拉擔任。以色列總理本雅明·内塔尼亚胡已表明不會承認該政府。 ](/news/2014/06/1/巴勒斯坦的新團結政府-Palestinian-unity-government-內閣今日正式宣布就職-監誓人為巴勒斯坦.md)
