@@ -12,9 +12,9 @@ _消息: CDMA, 中国电信, 中国网通, 中国联通, 人民币, 市值, 股�
 ### [巴基斯坦伊斯兰堡的丹麦丹麥大使館 of diplomatic missions of Denmark](/news/2008/06/2/巴基斯坦伊斯兰堡的丹麦丹麥大使館-of-diplomatic-missions-of-Denmark.md)
 _消息: 丹麥, 伊斯兰堡, 巴基斯坦, 自杀式汽车炸弹爆炸事件_
 
-##### 韓國
+##### 韩国
 ### [韓國政府農業部在群眾壓力下宣布，押後恢復自美國進口牛肉的決定。[http:--afp.google.com-article-ALeqM5jEcbd2395jMkWIJ5mP66vmxYQL5Q 法新社]date=十一月 2017 ](/news/2008/06/2/韓國政府農業部在群眾壓力下宣布-押後恢復自美國進口牛肉的決定-http-afpgooglecom-articl.md)
-_消息: 美國, 韓國_
+_消息: 美國, 韩国_
 
 ## [前一天...](/news/2008/06/1/index.md)
 
