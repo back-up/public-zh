@@ -18,7 +18,7 @@ _消息: 古巴, 教宗, 方济各_
 
 ##### Google公司
 ### [Google公司今日宣佈在美國試辦MVNO收費服務，目前名稱為Project Fi，象徵該公司也開始進入電信行業](/news/2015/04/22/Google公司今日宣佈在美國試辦MVNO收費服務-目前名稱為Project-Fi-象徵該公司也開始進入電信行業.md)
-_消息: Google公司, MVNO, Project Fi, 美國, 電信_
+_消息: Google公司, MVNO, Project Fi, 美国, 電信_
 
 ##### 奈及利亞
 ### [兩名奈及利亞軍方人士今聲稱已攻陷博科聖地的最後一個已知據點山姆畢沙森林 Forest（Sambisa Forest），象徵此一長達6年的博科聖地叛亂 Haram insurgency](/news/2015/04/22/兩名奈及利亞軍方人士今聲稱已攻陷博科聖地的最後一個已知據點山姆畢沙森林-Forest-Sambisa-Forest-象.md)
