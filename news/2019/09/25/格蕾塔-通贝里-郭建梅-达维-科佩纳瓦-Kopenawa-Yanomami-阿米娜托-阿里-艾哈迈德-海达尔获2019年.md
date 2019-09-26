@@ -1,0 +1,11 @@
+### [2019-09-25](/news/2019/09/25/index.md)
+
+##### 格蕾塔·通贝里
+# 格蕾塔·通贝里、郭建梅、达维·科佩纳瓦 Kopenawa Yanomami、阿米娜托·阿里·艾哈迈德·海达尔获2019年正确生活方式奖 Livelihood Award。 
+
+
+
+
+### 信息来源:
+
+1. [DW](https://www.dw.com/zh/%E8%AF%BA%E8%B4%9D%E5%B0%94%E6%9B%BF%E4%BB%A3%E5%A5%96%E6%8F%AD%E6%99%93-%E5%A5%B3%E5%BE%8B%E5%B8%88%E9%83%AD%E5%BB%BA%E6%A2%85%E8%8E%B7%E9%A2%81/a-50579871)
