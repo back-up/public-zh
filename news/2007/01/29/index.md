@@ -20,9 +20,9 @@ _消息: 007, 北京, 新鐵金剛智破皇家賭場_
 ### [俄羅斯首家廉價航空公司SkyExpress首航。](/news/2007/01/29/俄羅斯首家廉價航空公司SkyExpress首航.md)
 _消息: SkyExpress, 俄罗斯, 廉價航空公司_
 
-##### 歐盟
+##### 欧盟
 ### [歐盟表示，在未來四年內，將捐助阿富汗六億美元。[http:--tw.news.yahoo.com-article-url-d-a-070130-19-9y7e.html 法新社]date=十一月 2017 ](/news/2007/01/29/歐盟表示-在未來四年內-將捐助阿富汗六億美元-http-twnewsyahoocom-article-url.md)
-_消息: 歐盟, 阿富汗_
+_消息: 欧盟, 阿富汗_
 
 ## [前一天...](/news/2007/01/28/index.md)
 
