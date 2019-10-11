@@ -10,9 +10,13 @@ _消息: 休斯敦火箭, 推特, 达雷尔·莫雷_
 
 ##### 
 ### [2019年科索沃議會選舉 Kosovan parliamentary election進行投票。 ](/news/2019/10/6/2019年科索沃議會選舉-Kosovan-parliamentary-election進行投票.md)
-##### 
-### [2019年突尼斯議會選舉 Tunisian parliamentary election進行投票。 ](/news/2019/10/6/2019年突尼斯議會選舉-Tunisian-parliamentary-election進行投票.md)
-##### 
-### [2019年葡萄牙立法選舉 Portuguese legislative election進行投票。 ](/news/2019/10/6/2019年葡萄牙立法選舉-Portuguese-legislative-election進行投票.md)
+##### 2019年突尼斯議會選舉
+### [2019年突尼斯議會選舉進行投票。 ](/news/2019/10/6/2019年突尼斯議會選舉進行投票.md)
+_消息: 2019年突尼斯議會選舉_
+
+##### 2019年葡萄牙立法選舉
+### [2019年葡萄牙立法選舉進行投票。 ](/news/2019/10/6/2019年葡萄牙立法選舉進行投票.md)
+_消息: 2019年葡萄牙立法選舉_
+
 ## [前一天...](/news/2019/10/5/index.md)
 
