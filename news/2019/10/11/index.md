@@ -1,5 +1,9 @@
 ## [2019-10-11](/news/2019/10/11/index.md)
 
+##### 伊朗国家石油公司
+### [ 伊朗国家石油公司油轮萨比提号在红海萨比提号油轮遇袭事件 Explosion of Sabity Oil tanker ](/news/2019/10/11/伊朗国家石油公司油轮萨比提号在红海萨比提号油轮遇袭事件-Explosion-of-Sabity-Oil-tanker.md)
+_消息: 伊朗国家石油公司, 红海_
+
 ##### 華盛頓神秘
 ### [ 華盛頓神秘赢得2019年WNBA总决赛 WNBA Finals冠军 ](/news/2019/10/11/華盛頓神秘赢得2019年WNBA总决赛-WNBA-Finals冠军.md)
 _消息: 華盛頓神秘_
