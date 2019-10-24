@@ -1,14 +1,10 @@
 ### [2019-10-23](/news/2019/10/23/index.md)
 
 ##### 美国总统
-# 美国总统唐纳德·特朗普宣称土耳其政府已承诺2019年土耳其入侵叙利亚东北 Turkish offensive into north-eastern Syria 
+# 美国总统唐纳德·特朗普宣称土耳其政府已承诺2019年土耳其入侵叙利亚东北 Turkish offensive into north-eastern Syria
 
 
 
-
-### 信息来源:
-
-1. [The](https://www.nytimes.com/2019/10/23/us/politics/trump-syria-turkey-ceasefire.html)
 
 ### 有关:
 
