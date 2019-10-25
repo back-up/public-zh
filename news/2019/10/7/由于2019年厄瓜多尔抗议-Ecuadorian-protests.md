@@ -12,4 +12,4 @@
 
 ### 有关:
 
-1. [ 厄瓜多尔爆发2019年厄瓜多尔抗议 Ecuadorian protests ](/news/2019/10/3/厄瓜多尔爆发2019年厄瓜多尔抗议-Ecuadorian-protests.md) _消息: 利寧·莫雷諾_
+1. [ 厄瓜多尔爆发2019年厄瓜多尔抗议 Ecuadorian protests ](/zh/news/2019/10/3/厄瓜多尔爆发2019年厄瓜多尔抗议-Ecuadorian-protests.md) _消息: 利寧·莫雷諾_
