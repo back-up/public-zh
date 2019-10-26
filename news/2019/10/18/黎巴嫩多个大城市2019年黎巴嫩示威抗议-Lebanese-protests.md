@@ -12,5 +12,5 @@
 
 ### 有关:
 
-1. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: WhatsApp_
-2. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: WhatsApp_
+1. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: WhatsApp_
+2. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: WhatsApp_
