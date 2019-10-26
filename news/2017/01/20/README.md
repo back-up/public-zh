@@ -1,8 +1,6 @@
-## [2017-01-20](/news/2017/01/20/index.md)
+## [2017-01-20](/zh/news/2017/01/20/index.md)
 
 ##### 澳洲
-### [澳洲墨尔本市中心伯克街 Street, Melbourne Police逮捕了该名男子，并表示事件不涉及恐怖主义。 ](/news/2017/01/20/澳洲墨尔本市中心伯克街-Street-Melbourne-Police逮捕了该名男子-并表示事件不涉及恐怖主义.md)
-_消息: 墨尔本市中心, 澳洲_
-
-## [前一天...](/news/2017/01/19/index.md)
+### [澳洲墨尔本市中心伯克街 Street, Melbourne Police逮捕了该名男子，并表示事件不涉及恐怖主义。 ](/zh/news/2017/01/20/澳洲墨尔本市中心伯克街-Street-Melbourne-Police逮捕了该名男子-并表示事件不涉及恐怖主义.md)
+## [前一天...](/zh/news/2017/01/19/index.md)
 

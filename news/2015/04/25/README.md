@@ -1,12 +1,8 @@
-## [2015-04-25](/news/2015/04/25/index.md)
+## [2015-04-25](/zh/news/2015/04/25/index.md)
 
 ##### 博科聖地
-### [博科聖地正式宣佈更名為伊斯蘭國西非省（Islamic State West Africa Province，縮寫：ISWAP）](/news/2015/04/25/博科聖地正式宣佈更名為伊斯蘭國西非省-Islamic-State-West-Africa-Province-縮寫-ISW.md)
-_消息: 伊斯蘭國西非省, 博科聖地, 縮寫_
-
+### [博科聖地正式宣佈更名為伊斯蘭國西非省（Islamic State West Africa Province，縮寫：ISWAP）](/zh/news/2015/04/25/博科聖地正式宣佈更名為伊斯蘭國西非省-Islamic-State-West-Africa-Province-縮寫-ISW.md)
 ##### 尼泊爾
-### [ 尼泊爾首都加德滿都西北50 mi.1級地震](/news/2015/04/25/尼泊爾首都加德滿都西北50-mi1級地震.md)
-_消息: M<sub>W</sub>, 加德滿都, 地震, 尼泊爾_
-
-## [前一天...](/news/2015/04/24/index.md)
+### [ 尼泊爾首都加德滿都西北50 mi.1級地震](/zh/news/2015/04/25/尼泊爾首都加德滿都西北50-mi1級地震.md)
+## [前一天...](/zh/news/2015/04/24/index.md)
 

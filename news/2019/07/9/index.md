@@ -1,8 +1,6 @@
-## [2019-07-9](/news/2019/07/9/index.md)
+## [2019-07-9](/zh/news/2019/07/9/index.md)
 
 ##### 喬建軍
-### [sv domstolen (Sverige) ](/news/2019/07/9/sv-domstolen-Sverige.md)
-_消息: 喬建軍, 歐洲人權公約_
-
-## [前一天...](/news/2019/07/7/index.md)
+### [sv domstolen (Sverige) ](/zh/news/2019/07/9/sv-domstolen-Sverige.md)
+## [前一天...](/zh/news/2019/07/7/index.md)
 

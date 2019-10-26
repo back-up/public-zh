@@ -1,8 +1,6 @@
-## [2017-03-21](/news/2017/03/21/index.md)
+## [2017-03-21](/zh/news/2017/03/21/index.md)
 
 ##### 伊朗最高领袖
-### [en News Agency ](/news/2017/03/21/en-News-Agency.md)
-_消息: 伊朗最高领袖, 国际原子能机构, 穆罕默德·贾瓦德·扎里夫, 纳吾肉孜节, 美國, 阿里·哈梅內伊_
-
-## [前一天...](/news/2017/03/20/index.md)
+### [en News Agency ](/zh/news/2017/03/21/en-News-Agency.md)
+## [前一天...](/zh/news/2017/03/20/index.md)
 

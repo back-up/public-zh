@@ -12,4 +12,4 @@
 
 ### 有关:
 
-1. [Windows XP主流已停止支持](/news/2009/04/14/Windows-XP主流已停止支持.md) _消息: Windows XP_
+1. [Windows XP主流已停止支持](/zh/news/2009/04/14/Windows-XP主流已停止支持.md) _消息: Windows XP_

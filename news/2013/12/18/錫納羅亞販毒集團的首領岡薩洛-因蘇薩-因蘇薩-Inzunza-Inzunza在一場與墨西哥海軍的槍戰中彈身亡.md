@@ -12,4 +12,4 @@
 
 ### 有关:
 
-1. [荷蘭法院批准將錫納羅亞販毒集團領導人El Chino Ántrax Chino Ántrax引渡至美國。](/news/2014/05/28/荷蘭法院批准將錫納羅亞販毒集團領導人El-Chino-Ántrax-Chino-Ántrax引渡至美國.md) _消息: 錫納羅亞販毒集團_
+1. [荷蘭法院批准將錫納羅亞販毒集團領導人El Chino Ántrax Chino Ántrax引渡至美國。](/zh/news/2014/05/28/荷蘭法院批准將錫納羅亞販毒集團領導人El-Chino-Ántrax-Chino-Ántrax引渡至美國.md) _消息: 錫納羅亞販毒集團_
