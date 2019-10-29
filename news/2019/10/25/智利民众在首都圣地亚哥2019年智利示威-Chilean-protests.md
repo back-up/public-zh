@@ -3,12 +3,12 @@
 ##### 智利
 #  智利民众在首都圣地亚哥2019年智利示威 Chilean protests 
 
-
+The president says the government has "heard the message" after the march in the capital Santiago.
 
 
 ### 信息来源:
 
-1. [BBC](https://www.bbc.com/news/world-latin-america-50191746)
+1. [BBC](https://www.bbc.com/news/world-latin-america-50191746) [IMG](https://ichef.bbci.co.uk/images/ic/1024x576/p07s4kf3.jpg)
 
 ### 有关:
 

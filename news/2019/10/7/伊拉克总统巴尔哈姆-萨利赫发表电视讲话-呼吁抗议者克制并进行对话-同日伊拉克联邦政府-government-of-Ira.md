@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [DW](https://www.dw.com/zh/%E5%BE%B7%E5%9B%BD%E6%9E%97%E5%A0%A1%E5%8F%91%E7%94%9F%E5%8D%A1%E8%BD%A6%E5%86%B2%E6%92%9E%E4%BA%8B%E4%BB%B6-%E7%96%91%E4%B8%BA%E6%81%90%E8%A2%AD/a-50734540)
+1. [DW](https://www.dw.com/zh/%E5%BE%B7%E5%9B%BD%E6%9E%97%E5%A0%A1%E5%8F%91%E7%94%9F%E5%8D%A1%E8%BD%A6%E5%86%B2%E6%92%9E%E4%BA%8B%E4%BB%B6-%E7%96%91%E4%B8%BA%E6%81%90%E8%A2%AD/a-50734540) [IMG](https://www.dw.com/image/50730561_304.jpg)
 
 ### 有关:
 

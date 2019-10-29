@@ -9,7 +9,7 @@
 ### 信息来源:
 
 1. [加拿大星島日報 ](https://www.singtao.ca/3856893//news-%E6%99%BA%E5%88%A9%E6%92%A4%E5%9B%9E%E5%9C%B0%E9%90%B5%E5%8A%A0%E5%83%B9+%E7%A4%BA%E5%A8%81%E6%9C%AA%E5%B9%B3%E6%81%AF/?variant=zh-hk)
-2. [明報 ](https://news.mingpao.com/pns/%E5%9C%8B%E9%9A%9B/article/20191020/s00014/1571508069242/%E5%8F%8D%E5%9C%B0%E9%90%B5%E5%8A%A0%E5%83%B9-%E6%99%BA%E5%88%A9%E7%A4%BA%E5%A8%81%E8%80%85%E7%B8%B1%E7%81%AB%E6%AF%80%E7%AB%99)
+2. [明報 ](https://news.mingpao.com/pns/%E5%9C%8B%E9%9A%9B/article/20191020/s00014/1571508069242/%E5%8F%8D%E5%9C%B0%E9%90%B5%E5%8A%A0%E5%83%B9-%E6%99%BA%E5%88%A9%E7%A4%BA%E5%A8%81%E8%80%85%E7%B8%B1%E7%81%AB%E6%AF%80%E7%AB%99) [IMG](https://fs.mingpao.com/pns/20191020/s00060/f3c9790fdd1d28f2a74d3bda8e21439a.jpg)
 
 ### 有关:
 

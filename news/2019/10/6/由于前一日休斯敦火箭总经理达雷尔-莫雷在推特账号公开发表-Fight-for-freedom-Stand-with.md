@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [人民网](http://news.cctv.com/2019/10/07/ARTIJxXpjg1wixgLU47L0wBr191007.shtml)
+1. [人民网](http://news.cctv.com/2019/10/07/ARTIJxXpjg1wixgLU47L0wBr191007.shtml) [IMG](//p1.img.cctvpic.com/photoAlbum/templet/common/DEPA1502157896010276/newslog200.jpg)
 
 ### 有关:
 

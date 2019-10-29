@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [央视网](https://news.sina.com.cn/w/2019-10-14/doc-iicezzrr2009674.shtml)
+1. [央视网](https://news.sina.com.cn/w/2019-10-14/doc-iicezzrr2009674.shtml) [IMG](http://n.sinaimg.cn/translate/200/w600h400/20191014/4325-ifvwftk5192867.jpg)
 
 ### 有关:
 
