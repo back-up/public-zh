@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [联合早报](https://www.zaobao.com.sg/special/report/politic/indopol/story20191011-996050)
+1. [联合早报](https://www.zaobao.com.sg/special/report/politic/indopol/story20191011-996050) [IMG](https://www.zaobao.com.sg/sites/default/files/styles/og_share_medium/public/images/201910/20191011/ZB_1011_CJ_doc77h0mzhwai0g7wthp4s_10194744_chuching.jpg?itok=-ygL5mLO&c=058639d32f4b66b94164687b6491aea3)
 
 ### 有关:
 
