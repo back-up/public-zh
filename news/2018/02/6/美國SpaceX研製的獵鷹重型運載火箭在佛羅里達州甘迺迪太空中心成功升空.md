@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [美國之音](https://www.voachinese.com/a/news-space-x-launch-20180207/4242780.html)
+1. [美國之音](https://www.voachinese.com/a/news-space-x-launch-20180207/4242780.html) [IMG](https://gdb.voanews.com/9B6D764D-867D-4E30-8B8D-3A45F0153913_cx0_cy18_cw0_w1200_r1_s.jpg)
 
 ### 有关:
 

@@ -8,4 +8,4 @@
 
 ### 信息来源:
 
-1. [SINDOnews](https://international.sindonews.com/read/1414177/40/gempa-magnitudo-77-guncang-laut-banda-warga-australia-berhamburan-1561352118)
+1. [SINDOnews](https://international.sindonews.com/read/1414177/40/gempa-magnitudo-77-guncang-laut-banda-warga-australia-berhamburan-1561352118) [IMG](https://cdn.sindonews.net/dyn/620/content/2019/06/24/40/1414177/gempa-magnitudo-7-7-guncang-laut-banda-warga-australia-berhamburan-ADR.jpg)

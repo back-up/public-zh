@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [東方日報](https://hk.on.cc/hk/bkn/cnt/aeanews/20181103/bkn-20181103015407388-1103_00912_001.html)
+1. [東方日報](https://hk.on.cc/hk/bkn/cnt/aeanews/20181103/bkn-20181103015407388-1103_00912_001.html) [IMG](//hk.on.cc/hk/bkn/cnt/aeanews/20181103/photo/bkn-20181103015407388-1103_00912_001_01b.jpg?20181103223017)
 2. [澎湃新聞](https://www.thepaper.cn/newsDetail_forward_2596813)
 
 ### 有关:

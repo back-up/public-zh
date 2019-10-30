@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [VOA](https://www.voachinese.com/a/iran-shoots-down-us-drone-20190620/4967067.html)
+1. [VOA](https://www.voachinese.com/a/iran-shoots-down-us-drone-20190620/4967067.html) [IMG](https://gdb.voanews.com/883A81E5-1591-425F-9BCA-D32866B63F38_cx0_cy10_cw0_w1200_r1_s.jpg)
 
 ### 有关:
 

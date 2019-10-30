@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [RFA ](https://www.rfa.org/cantonese/news/russia-telegram-04142018093758.html?encoding=simplified)
+1. [RFA ](https://www.rfa.org/cantonese/news/russia-telegram-04142018093758.html?encoding=simplified) [IMG](https://www.rfa.org/cantonese/news/russia-telegram-04142018093758.html/russia-telegram.jpg)
 
 ### 有关:
 

@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [美國之音](https://www.voachinese.com/a/us-jobs-20180601/4419976.html)
+1. [美國之音](https://www.voachinese.com/a/us-jobs-20180601/4419976.html) [IMG](https://gdb.voanews.com/D349BD75-E335-4572-B18A-5E9DBE2F8D89_w1200_r1_s.jpg)
 
 ### 有关:
 

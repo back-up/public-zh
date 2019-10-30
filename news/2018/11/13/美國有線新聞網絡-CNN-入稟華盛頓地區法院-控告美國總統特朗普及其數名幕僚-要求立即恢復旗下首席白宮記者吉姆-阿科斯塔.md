@@ -9,7 +9,7 @@
 ### 信息来源:
 
 1. [Paul Farhi The Washington Post ](https://www.washingtonpost.com/lifestyle/style/cnn-sues-white-house-to-regain-access-for-reporter-jim-acosta/2018/11/13/afc3423c-e6bf-11e8-bbdb-72fdbf9d4fed_story.html?utm_term=.732b0a7c8c3d)
-2. [明報 ](https://news.mingpao.com/pns/dailynews/web_tc/article/20181114/s00014/1542133922614)
+2. [明報 ](https://news.mingpao.com/pns/dailynews/web_tc/article/20181114/s00014/1542133922614) [IMG](https://fs.mingpao.com/pns/20181114/s00060/8f71dc2c03ca46480d546f2f9a7bdb05.jpg)
 
 ### 有关:
 

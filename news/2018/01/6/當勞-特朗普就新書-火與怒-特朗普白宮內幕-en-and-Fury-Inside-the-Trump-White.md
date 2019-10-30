@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [英國廣播公司新聞](http://www.bbc.com/zhongwen/trad/world-42588933)
+1. [英國廣播公司新聞](http://www.bbc.com/zhongwen/trad/world-42588933) [IMG](https://ichef.bbci.co.uk/news/1024/branded_zhongwen/11484/production/_99488707_mediaitem99488706.jpg)
 
 ### 有关:
 

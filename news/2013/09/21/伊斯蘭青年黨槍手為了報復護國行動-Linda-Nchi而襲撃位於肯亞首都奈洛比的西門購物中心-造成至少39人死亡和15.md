@@ -3,14 +3,14 @@
 ##### 伊斯蘭青年黨
 #  伊斯蘭青年黨槍手為了報復護國行動 Linda Nchi而襲撃位於肯亞首都奈洛比的西門購物中心，造成至少39人死亡和150人受傷，隨後槍手繼續留在商場內與軍警對峙。
 
-
+Gunmen attacked an upscale shopping mall in the Kenyan capital on Saturday, leading to a fierce gunbattle with police and leaving at least 39 people dead.
 
 
 ### 信息来源:
 
 1. [BBC新聞](http://www.bbc.co.uk/news/world-africa-24225319)
 2. [愛爾蘭廣播電視](http://www.rte.ie/news/2013/0921/475630-kenya-attack/)
-3. [有線電視新聞網](http://edition.cnn.com/2013/09/21/world/africa/kenya-mall-gunbattle/index.html)
+3. [有線電視新聞網](http://edition.cnn.com/2013/09/21/world/africa/kenya-mall-gunbattle/index.html) [IMG](http://i2.cdn.turner.com/cnn/dam/assets/130924195244-01-kenya-mall-grief-0924-story-top.jpg)
 4. [法國24](https://web.archive.org/web/20150601221956/http://www.france24.com/en/breaking/20130921-gunbattle-breaks-out-shopping-mall-kenyan-capital-nairobi?ns_campaign=al_en&ns_mchannel=email_marketing&ns_source=AL_20130921_1246&ns_linkname=20130921_breaking_news&ns_fee=0&f24_member_id=1080960490882)
 
 ### 有关:

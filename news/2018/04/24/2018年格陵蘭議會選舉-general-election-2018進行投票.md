@@ -8,4 +8,4 @@
 
 ### 信息来源:
 
-1. [自由時報電子報](http://news.ltn.com.tw/news/world/paper/1195374)
+1. [自由時報電子報](http://news.ltn.com.tw/news/world/paper/1195374) [IMG](https://img.ltn.com.tw/Upload/news/600/2018/04/25/265.jpg)

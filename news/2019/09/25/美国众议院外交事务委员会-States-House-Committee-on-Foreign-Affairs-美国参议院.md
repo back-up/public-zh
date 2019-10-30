@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [BBC](https://www.bbc.com/zhongwen/simp/world-49835074)
+1. [BBC](https://www.bbc.com/zhongwen/simp/world-49835074) [IMG](https://ichef.bbci.co.uk/news/1024/branded_zhongwen/AC40/production/_108969044_gettyimages-1169407702.jpg)
 
 ### 有关:
 

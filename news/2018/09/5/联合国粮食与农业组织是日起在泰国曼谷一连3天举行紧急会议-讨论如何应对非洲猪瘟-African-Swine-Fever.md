@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [FT中文 ](http://www.ftchinese.com/story/001079283?full=y)
+1. [FT中文 ](http://www.ftchinese.com/story/001079283?full=y) [IMG](http://i.ftimg.net/picture/1/000080301_piclink.jpg)
 
 ### 有关:
 

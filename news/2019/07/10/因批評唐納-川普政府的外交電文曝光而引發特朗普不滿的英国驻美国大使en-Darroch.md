@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [BBC](https://www.bbc.com/zhongwen/simp/world-48922015)
+1. [BBC](https://www.bbc.com/zhongwen/simp/world-48922015) [IMG](https://ichef.bbci.co.uk/news/1024/branded_zhongwen/CD59/production/_107796525_trump_darroch.jpg)
 
 ### 有关:
 

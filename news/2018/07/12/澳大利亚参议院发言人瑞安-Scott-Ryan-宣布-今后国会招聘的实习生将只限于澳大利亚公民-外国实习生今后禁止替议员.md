@@ -8,4 +8,4 @@
 
 ### 信息来源:
 
-1. [DW ](https://www.dw.com/zh/%E5%92%8C%E4%B8%AD%E5%9B%BD%E4%B8%8D%E6%84%89%E5%BF%AB-%E6%BE%B3%E8%AE%AE%E4%BC%9A%E7%A6%81%E6%AD%A2%E5%A4%96%E5%9B%BD%E5%AE%9E%E4%B9%A0%E7%94%9F/a-44646592?&zhongwen=simp)
+1. [DW ](https://www.dw.com/zh/%E5%92%8C%E4%B8%AD%E5%9B%BD%E4%B8%8D%E6%84%89%E5%BF%AB-%E6%BE%B3%E8%AE%AE%E4%BC%9A%E7%A6%81%E6%AD%A2%E5%A4%96%E5%9B%BD%E5%AE%9E%E4%B9%A0%E7%94%9F/a-44646592?&zhongwen=simp) [IMG](https://www.dw.com/image/4692579_7.jpg)

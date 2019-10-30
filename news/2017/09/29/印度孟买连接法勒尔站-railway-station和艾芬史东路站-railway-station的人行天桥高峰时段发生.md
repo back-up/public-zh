@@ -3,12 +3,12 @@
 ##### 孟买
 # 印度孟买连接法勒尔站 railway station和艾芬史东路站 railway station的人行天桥高峰时段发生踩踏事故，至少32人遇难，30多人重伤 
 
-
+Twenty-two were killed and over 30 seriously injured in a rush-hour stampede in Mumbai this morning, when a crowd tried to leave a narrow railway bridge connecting two stations after heavy rain. Heart-wrenching visuals showed a crush of bodies on the bridge, straining against the railing. Screams were heard from those trying to escape the weight of the bodies and some were seen jumping off the bridge.
 
 
 ### 信息来源:
 
-1. [NDTV](https://www.ndtv.com/mumbai-news/elphinstone-railway-station-stampede-at-overbridge-several-injured-1756677)
+1. [NDTV](https://www.ndtv.com/mumbai-news/elphinstone-railway-station-stampede-at-overbridge-several-injured-1756677) [IMG](https://i.ndtvimg.com/i/2017-09/elphinstone-station-mumbai-stampede-afp_650x488_51506677379.jpg)
 2. [Reuters](https://www.reuters.com/article/us-india-stampede/indian-railway-rush-hour-stampede-kills-at-least-15-official-idUSKCN1C40NF?il=0)
 
 ### 有关:

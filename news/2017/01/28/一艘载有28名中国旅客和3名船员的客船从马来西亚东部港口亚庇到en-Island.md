@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [BBC中文網](http://www.bbc.com/zhongwen/simp/world-38793138)
+1. [BBC中文網](http://www.bbc.com/zhongwen/simp/world-38793138) [IMG](https://ichef.bbci.co.uk/news/1024/branded_zhongwen/17F12/production/_93866089_xxjpsgc000844_20170130_tppfn0a001-2048.jpg)
 2. [美联社](http://hosted.ap.org/dynamic/stories/A/AS_MALAYSIA_CHINA_MISSING_BOAT?SITE=AP&SECTION=HOME&TEMPLATE=DEFAULT)
 
 ### 有关:

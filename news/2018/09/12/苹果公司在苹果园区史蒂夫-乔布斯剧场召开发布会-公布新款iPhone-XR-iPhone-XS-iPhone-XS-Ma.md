@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [天下杂志](https://www.cw.com.tw/article/article.action?id=5092087)
+1. [天下杂志](https://www.cw.com.tw/article/article.action?id=5092087) [IMG](https://storage.googleapis.com/www-cw-com-tw/article/201809/article-5b9983bf0739e.jpg)
 
 ### 有关:
 

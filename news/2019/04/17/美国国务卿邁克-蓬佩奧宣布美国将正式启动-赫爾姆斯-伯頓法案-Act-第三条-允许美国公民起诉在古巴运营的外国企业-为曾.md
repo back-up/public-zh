@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [美國之音](https://www.voachinese.com/a/us-to-allow-lawsuits-over-properties-seized-by-castro-cuba-20190417/4880607.html)
+1. [美國之音](https://www.voachinese.com/a/us-to-allow-lawsuits-over-properties-seized-by-castro-cuba-20190417/4880607.html) [IMG](https://gdb.voanews.com/1C7E109F-C434-40B4-9B3A-254AE740D8C2_w1200_r1_s.jpg)
 
 ### 有关:
 

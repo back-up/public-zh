@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [LA](http://www.latimes.com/entertainment/la-et-oscar-nominations-2017-live-updates-academy-awards-20170124-htmlstory.html)
+1. [LA](http://www.latimes.com/entertainment/la-et-oscar-nominations-2017-live-updates-academy-awards-20170124-htmlstory.html) [IMG](https://ca-times.brightspotcdn.com/dims4/default/e2816d0/2147483647/strip/true/crop/1200x630+0+0/resize/1200x630!/quality/90/?url=https%3A%2F%2Fcalifornia-times-brightspot.s3.amazonaws.com%2F5b%2F78%2F7c3e41e74e4b986d23923ee121b2%2Flat-logo-dark-full.jpg)
 2. [Toronto](http://www.torontosun.com/2017/01/24/la-la-land-moonlight-and-arrival-land-top-oscar-nominations)
 
 ### 有关:

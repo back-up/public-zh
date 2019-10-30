@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [蘋果即時新聞](https://hk.news.appledaily.com/international/realtime/article/20180918/58694652)
+1. [蘋果即時新聞](https://hk.news.appledaily.com/international/realtime/article/20180918/58694652) [IMG](https://static.appledaily.hk/images/e-paper/20180918/720pix/1537252718_44d7.jpg)
 
 ### 有关:
 

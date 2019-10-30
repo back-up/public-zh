@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [10月 8日，BBC](https://www.bbc.com/zhongwen/trad/science-45785372)
+1. [10月 8日，BBC](https://www.bbc.com/zhongwen/trad/science-45785372) [IMG](https://ichef.bbci.co.uk/news/1024/branded_zhongwen/14D7F/production/_103757358_ip1.png)
 
 ### 有关:
 

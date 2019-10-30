@@ -8,8 +8,8 @@
 
 ### 信息来源:
 
-1. [Le](http://www.lefigaro.fr/flash-actu/2018/11/24/97001-20181124FILWWW00078-gilets-jaunes-81000-personnes-a-travers-le-pays.php)
-2. [Sputnik](https://fr.sputniknews.com/france/201811241039028901-gilets-jaunes-nouvelle-manifestation/)
+1. [Le](http://www.lefigaro.fr/flash-actu/2018/11/24/97001-20181124FILWWW00078-gilets-jaunes-81000-personnes-a-travers-le-pays.php) [IMG](https://i.f1g.fr/media/ext/orig/www.lefigaro.fr/medias/2018/11/24/20181124PHOWWW00079.jpg)
+2. [Sputnik](https://fr.sputniknews.com/france/201811241039028901-gilets-jaunes-nouvelle-manifestation/) [IMG](https://fr.sputniknews.com/sharing_snippet/1039028901.png?1543042860)
 
 ### 有关:
 

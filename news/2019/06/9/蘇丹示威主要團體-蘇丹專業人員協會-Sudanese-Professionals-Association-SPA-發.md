@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [ETtoday新聞雲 ](https://www.ettoday.net/news/20190610/1463837.htm)
+1. [ETtoday新聞雲 ](https://www.ettoday.net/news/20190610/1463837.htm) [IMG](https://cdn2.ettoday.net/images/4154/d4154269.jpg)
 
 ### 有关:
 

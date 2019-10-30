@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [Vesti.ru](http://www.vesti.ru/doc.html?id=1162984)
+1. [Vesti.ru](http://www.vesti.ru/doc.html?id=1162984) [IMG](https://cdn-st1.rtr-vesti.ru/p/xw_858198.jpg)
 
 ### 有关:
 

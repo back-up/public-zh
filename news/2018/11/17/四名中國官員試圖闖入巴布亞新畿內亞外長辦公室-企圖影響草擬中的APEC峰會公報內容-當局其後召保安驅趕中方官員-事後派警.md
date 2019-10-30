@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [ 東方日報](http://orientaldaily.on.cc/cnt/china_world/20181119/00178_005.html)
+1. [ 東方日報](http://orientaldaily.on.cc/cnt/china_world/20181119/00178_005.html) [IMG](https://orientaldaily.on.cc/cnt/china_world/20181119/photo/1119-00178-005b1.jpg)
 
 ### 有关:
 
