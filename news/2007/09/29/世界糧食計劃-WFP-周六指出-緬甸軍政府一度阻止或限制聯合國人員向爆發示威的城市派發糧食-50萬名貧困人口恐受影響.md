@@ -9,7 +9,7 @@
 ### 信息来源:
 
 1. [星島日報](http://www.singtao.com/yesterday/int/0930bo03.html)
-2. [香港YAHOO新聞](https://archive.is/20130105112348/http://hk.news.yahoo.com/070929/12/2gm22.html)
+2. [香港YAHOO新聞](https://archive.is/20130105112348/http://hk.news.yahoo.com/070929/12/2gm22.html) [IMG](https://archive.is/YdUSU/de47ef5a776f518138fd2fadcd99ece65a531ec8/scr.png)
 
 ### 有关:
 

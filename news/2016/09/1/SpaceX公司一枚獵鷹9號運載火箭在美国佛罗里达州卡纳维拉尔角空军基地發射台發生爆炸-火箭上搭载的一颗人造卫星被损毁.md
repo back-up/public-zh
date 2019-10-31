@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [美國之音](http://www.voachinese.com/a/space-x-explosion-20160901/3490781.html)
+1. [美國之音](http://www.voachinese.com/a/space-x-explosion-20160901/3490781.html) [IMG](https://gdb.voanews.com/80312A44-5CF6-44FD-829A-A12BC173F875_w1200_r1_s.jpg)
 
 ### 有关:
 

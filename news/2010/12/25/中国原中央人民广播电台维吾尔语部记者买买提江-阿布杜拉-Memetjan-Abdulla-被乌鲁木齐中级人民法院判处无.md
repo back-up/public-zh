@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [RFA](http://www.rfa.org/cantonese/news/china_reporter-12222010100127.html)
+1. [RFA](http://www.rfa.org/cantonese/news/china_reporter-12222010100127.html) [IMG](/english/images/rfa-logo-400.jpg)
 
 ### 有关:
 

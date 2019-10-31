@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [蘇格蘭人報](http://sport.scotsman.com/sport/David-Beckham39s-bid-to-become.6151139.jp)
+1. [蘇格蘭人報](http://sport.scotsman.com/sport/David-Beckham39s-bid-to-become.6151139.jp) [IMG](https://images-a.jpimedia.uk/imagefetch/http://editorial.jpress.co.uk/mastheads/SWTS-masthead-share-img.png)
 
 ### 有关:
 

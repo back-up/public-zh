@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [新唐人電視台](https://www.ntdtv.com/b5/2019/05/25/a102586306.html)
+1. [新唐人電視台](https://www.ntdtv.com/b5/2019/05/25/a102586306.html) [IMG](https://i.ntdtv.com/assets/uploads/2019/05/gettyimages-1145147223-594x594-2-800x450.jpg)
 
 ### 有关:
 
