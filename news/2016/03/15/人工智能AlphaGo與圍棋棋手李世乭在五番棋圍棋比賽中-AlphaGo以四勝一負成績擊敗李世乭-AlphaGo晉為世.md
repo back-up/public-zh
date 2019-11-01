@@ -8,4 +8,4 @@
 
 ### 信息来源:
 
-1. [科技新報](http://technews.tw/2016/03/14/google-alphago-challenge-china-teenager/)
+1. [科技新報](http://technews.tw/2016/03/14/google-alphago-challenge-china-teenager/) [IMG](http://img.technews.tw/wp-content/uploads/2016/03/google-alphago-challenge-china-teenager-1.jpg)

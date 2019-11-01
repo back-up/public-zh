@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [中廣電子報/台灣](https://archive.is/20121223093036/http://news.rti.org.tw/index_newsContent.aspx?nid=302004)
+1. [中廣電子報/台灣](https://archive.is/20121223093036/http://news.rti.org.tw/index_newsContent.aspx?nid=302004) [IMG](https://archive.is/MlED/7d0305ca7afd7f1b454cc52b94d6ddacdc9b4cf1.jpg)
 
 ### 有关:
 
