@@ -1,5 +1,6 @@
 ## [2019-10-21](/zh/news/2019/10/21/index.md)
 
+### [ 由于怀疑2019年玻利维亚大选 Bolivian general election Bolivian protests ](/zh/news/2019/10/21/由于怀疑2019年玻利维亚大选-Bolivian-general-election-Bolivian-protests.md)
 ##### 英国下议院
 ### [ 英国下议院议长约翰·伯科拒绝再次表决新脱欧协议。 ](/zh/news/2019/10/21/英国下议院议长约翰-伯科拒绝再次表决新脱欧协议.md)
 ##### 泰国国王
