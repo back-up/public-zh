@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [無線新聞](http://news.tvb.com/world/577f4e7e6db28cac4e6073c8)
+1. [無線新聞](http://news.tvb.com/world/577f4e7e6db28cac4e6073c8) [IMG](http://img.tvb.com/inews/images/20160708/entries_577f4e7e6db28cac4e6073c8_2467677952_big_1467961941.jpg)
 
 ### 有关:
 

@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [中央社](https://web.archive.org/web/20121111174155/http://www.cna.com.tw/News/aOPL/201210050188.aspx)
+1. [中央社](https://web.archive.org/web/20121111174155/http://www.cna.com.tw/News/aOPL/201210050188.aspx) [IMG](https://web.archive.org/web/20121111174155im_/http://img1.cna.com.tw/www/images/pic_fb.jpg)
 
 ### 有关:
 

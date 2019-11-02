@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [Tribun](http://www.tribunnews.com/nasional/2016/12/07/berita-update-korban-meninggal-dunia-gempa-aceh-97-orang)
+1. [Tribun](http://www.tribunnews.com/nasional/2016/12/07/berita-update-korban-meninggal-dunia-gempa-aceh-97-orang) [IMG](https://cdn2.tstatic.net/tribunnews/foto/bank/images/aceh-kembali-diguncang-gempa-dahsyat_20161207_162858.jpg)
 2. [中央通訊社](http://www.cna.com.tw/news/aopl/201612070244-1.aspx)
 3. [中新網](http://www.chinanews.com/gj/2016/12-07/8086630.shtml)
 4. [腾讯新闻](https://view.inews.qq.com/a/NEW2016120700236107)

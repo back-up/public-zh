@@ -9,7 +9,7 @@
 ### 信息来源:
 
 1. [TOP500](http://www.top500.org/)
-2. [中央社](https://web.archive.org/web/20121123114607/http://www.cna.com.tw/News/aFav/201211130128.aspx)
+2. [中央社](https://web.archive.org/web/20121123114607/http://www.cna.com.tw/News/aFav/201211130128.aspx) [IMG](https://web.archive.org/web/20121123114607im_/http://img1.cna.com.tw/www/images/pic_fb.jpg)
 
 ### 有关:
 

@@ -9,7 +9,7 @@
 ### 信息来源:
 
 1. [Yahoo/地方新聞](https://web.archive.org/web/20110630063111/http://tw.news.yahoo.com/article/url/d/a/110626/35/2tzv3.html)
-2. [中央社](https://archive.is/20121222051843/http://news.rti.org.tw/index_newsContent.aspx?nid=304276)
+2. [中央社](https://archive.is/20121222051843/http://news.rti.org.tw/index_newsContent.aspx?nid=304276) [IMG](https://archive.is/NMMr/7d0305ca7afd7f1b454cc52b94d6ddacdc9b4cf1.jpg)
 
 ### 有关:
 
