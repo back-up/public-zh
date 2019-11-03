@@ -8,4 +8,4 @@
 
 ### 信息来源:
 
-1. [BBC中文网](http://www.bbc.com/zhongwen/simp/world/2016/02/160226_fifa_president_election)
+1. [BBC中文网](http://www.bbc.com/zhongwen/simp/world/2016/02/160226_fifa_president_election) [IMG](https://ichef.bbci.co.uk/news/ws/1024/branded_zhongwen/worldservice/live/assets/images/2016/02/26/160226170903_gianni_512x288_gettyimages_nocredit.jpg)

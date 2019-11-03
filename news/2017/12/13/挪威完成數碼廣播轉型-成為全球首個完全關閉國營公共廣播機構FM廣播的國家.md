@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [明報](https://news.mingpao.com/pns/dailynews/web_tc/article/20171215/s00014/1513275219077)
+1. [明報](https://news.mingpao.com/pns/dailynews/web_tc/article/20171215/s00014/1513275219077) [IMG](https://fs.mingpao.com/image/mingpao_logo_200.png)
 
 ### 有关:
 

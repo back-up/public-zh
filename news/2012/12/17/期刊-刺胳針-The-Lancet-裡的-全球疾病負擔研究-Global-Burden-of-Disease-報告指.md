@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [臺灣醒報](https://archive.is/20130425002424/http://www.anntw.com/awakening/news_center/show.php?itemid=37739)
+1. [臺灣醒報](https://archive.is/20130425002424/http://www.anntw.com/awakening/news_center/show.php?itemid=37739) [IMG](https://archive.is/gtrrp/530ea0ba95640864e1177214d49514d6cf6e1477.jpg)
 
 ### 有关:
 

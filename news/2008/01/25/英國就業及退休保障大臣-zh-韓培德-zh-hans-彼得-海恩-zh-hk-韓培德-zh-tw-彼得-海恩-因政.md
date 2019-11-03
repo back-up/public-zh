@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [大紀元](http://www.epochtimes.com/b5/8/1/24/n1989608.htm)
+1. [大紀元](http://www.epochtimes.com/b5/8/1/24/n1989608.htm) [IMG](http://i.epochtimes.com/assets/uploads/2008/01/801241000351793.jpg)
 2. [有線電視新聞](http://inews.i-cable.com/webapps/news_detail.php?id=259746&category=3)
 
 ### 有关:

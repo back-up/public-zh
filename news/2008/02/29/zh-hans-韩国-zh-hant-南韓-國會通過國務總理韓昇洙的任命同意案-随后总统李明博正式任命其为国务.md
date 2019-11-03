@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [PChome新聞-中央社](http://news.pchome.com.tw/internation/cna/20080229/index-20080229221838180302.html)
+1. [PChome新聞-中央社](http://news.pchome.com.tw/internation/cna/20080229/index-20080229221838180302.html) [IMG](http://news.pchome.com.tw/img/pchome_news_fb.jpg)
 2. [人民网](http://world.people.com.cn/GB/1029/42354/6943212.html)
 
 ### 有关:

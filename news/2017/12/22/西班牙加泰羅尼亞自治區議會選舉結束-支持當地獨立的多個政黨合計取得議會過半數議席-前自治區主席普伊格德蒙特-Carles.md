@@ -9,7 +9,7 @@
 ### 信息来源:
 
 1. [RTHK](http://news.rthk.hk/rthk/ch/component/k2/1371496-20171222.htm?spTabChangeable=0)
-2. [bbc中文網](http://www.bbc.com/zhongwen/trad/world-42437019)
+2. [bbc中文網](http://www.bbc.com/zhongwen/trad/world-42437019) [IMG](https://ichef.bbci.co.uk/news/1024/branded_zhongwen/14841/production/_99333048_hi043703573.jpg)
 
 ### 有关:
 

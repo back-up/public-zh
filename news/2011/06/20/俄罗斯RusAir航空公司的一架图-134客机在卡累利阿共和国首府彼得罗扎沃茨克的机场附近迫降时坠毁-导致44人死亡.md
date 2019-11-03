@@ -8,4 +8,4 @@
 
 ### 信息来源:
 
-1. [环球网](https://archive.is/20130426161501/http://world.huanqiu.com/hot/2011-06/1771806.html)
+1. [环球网](https://archive.is/20130426161501/http://world.huanqiu.com/hot/2011-06/1771806.html) [IMG](https://archive.is/k1Jn1/c7126e5b3f95e2df0a4fd91634eeb9d0ef8ba316/scr.png)

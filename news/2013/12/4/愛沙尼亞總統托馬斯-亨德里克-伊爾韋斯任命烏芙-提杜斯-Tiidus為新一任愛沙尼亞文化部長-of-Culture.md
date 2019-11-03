@@ -8,4 +8,4 @@
 
 ### 信息来源:
 
-1. [Postimees](http://www.postimees.ee/2619790/tiidus-andis-ametivande-ja-astus-kultuuriministri-ametisse)
+1. [Postimees](http://www.postimees.ee/2619790/tiidus-andis-ametivande-ja-astus-kultuuriministri-ametisse) [IMG](https://f11.pmo.ee/Lo-fS-FnUrah-6ysAi3_lnT06AY=/1200x630/smart/nginx/o/2013/12/04/2665282t1h9415.jpg)

@@ -8,5 +8,5 @@
 
 ### 信息来源:
 
-1. [BBC](http://www.bbc.com/news/uk-england-manchester-40007886)
+1. [BBC](http://www.bbc.com/news/uk-england-manchester-40007886) [IMG](https://ichef.bbci.co.uk/images/ic/1024x576/p053qsgc.jpg)
 2. [NBC](http://www.nbcphiladelphia.com/news/national-international/British-Police-Incident-Reports-at-Manchester-Arena-423715894.html)

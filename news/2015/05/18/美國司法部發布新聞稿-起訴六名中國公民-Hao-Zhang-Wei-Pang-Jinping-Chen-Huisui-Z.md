@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [U.S.](http://www.justice.gov/opa/pr/chinese-professors-among-six-defendants-charged-economic-espionage-and-theft-trade-secrets)
+1. [U.S.](http://www.justice.gov/opa/pr/chinese-professors-among-six-defendants-charged-economic-espionage-and-theft-trade-secrets) [IMG](https://www.justice.gov/sites/all/modules/features/doj_sharing/images/doj-seal-fb.jpg)
 
 ### 有关:
 
