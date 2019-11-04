@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [端傳媒](https://theinitium.com/article/20171215-morning-brief/)
+1. [端傳媒](https://theinitium.com/article/20171215-morning-brief/) [IMG](https://d32kak7w9u5ewj.cloudfront.net/media/image/2017/12/4f92436e62e94c0ca38538c31e21a069.jpg)
 
 ### 有关:
 

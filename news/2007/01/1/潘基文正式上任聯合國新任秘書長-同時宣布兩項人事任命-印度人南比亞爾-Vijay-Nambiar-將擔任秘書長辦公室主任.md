@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [路透社](https://archive.is/20130106010420/http://hk.news.yahoo.com/070101/3/1z4jy.html)
+1. [路透社](https://archive.is/20130106010420/http://hk.news.yahoo.com/070101/3/1z4jy.html) [IMG](https://archive.is/Efpw3/ec50fed9ad8d27da262a058e9c6f06af18177637/scr.png)
 
 ### 有关:
 

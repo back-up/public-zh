@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [yam蕃薯藤新聞](http://n.yam.com/tvbs/international/201104/20110413660584.html)
+1. [yam蕃薯藤新聞](http://n.yam.com/tvbs/international/201104/20110413660584.html) [IMG](https://n.yam.com/images/logo.png)
 
 ### 有关:
 

@@ -8,4 +8,4 @@
 
 ### 信息来源:
 
-1. [BBC中文網](http://www.bbc.com/zhongwen/simp/world-40425320)
+1. [BBC中文網](http://www.bbc.com/zhongwen/simp/world-40425320) [IMG](https://ichef.bbci.co.uk/news/1024/branded_zhongwen/122AA/production/_96701447_mediaitem96701446.jpg)

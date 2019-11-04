@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [中央廣播電台](http://www.rti.org.tw/m/news/detail/?recordId=194031)
+1. [中央廣播電台](http://www.rti.org.tw/m/news/detail/?recordId=194031) [IMG](https://static.rti.org.tw/img/fb-rti-logo.png)
 
 ### 有关:
 

@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [新浪新闻](http://news.sina.com.cn/o/2015-12-22/doc-ifxmszek7590329.shtml)
+1. [新浪新闻](http://news.sina.com.cn/o/2015-12-22/doc-ifxmszek7590329.shtml) [IMG](http://n.sinaimg.cn/translate/20151222/RL-W-fxmttms6413496.jpg)
 
 ### 有关:
 

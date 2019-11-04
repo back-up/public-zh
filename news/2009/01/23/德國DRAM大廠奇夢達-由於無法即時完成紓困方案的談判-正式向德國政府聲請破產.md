@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [yam天空新聞─中央社１](http://n.yam.com/cna/fn/200901/20090123073265.html)
+1. [yam天空新聞─中央社１](http://n.yam.com/cna/fn/200901/20090123073265.html) [IMG](https://n.yam.com/images/logo.png)
 2. [２](http://n.yam.com/cna/fn/200901/20090123076943.html) [IMG](https://n.yam.com/images/logo.png)
 
 ### 有关:

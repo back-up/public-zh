@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [美國之音](https://www.voachinese.com/a/trump-opioids-20171026/4088453.html)
+1. [美國之音](https://www.voachinese.com/a/trump-opioids-20171026/4088453.html) [IMG](https://gdb.voanews.com/7EDF793D-CE35-4F24-BB8B-DB61D07EC18A_w1200_r1_s.jpg)
 
 ### 有关:
 
