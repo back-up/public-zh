@@ -8,4 +8,4 @@
 
 ### 信息来源:
 
-1. [雅虎轉載香港明報](https://archive.is/20130105095045/http://hk.news.yahoo.com/060125/12/1kqil.html)
+1. [雅虎轉載香港明報](https://archive.is/20130105095045/http://hk.news.yahoo.com/060125/12/1kqil.html) [IMG](https://archive.is/jV7bG/13a861ff0ba9edd87dd174b17fbf22859129d66a/scr.png)

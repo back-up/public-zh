@@ -3,12 +3,12 @@
 ##### 印度空间研究组织
 # 印度空间研究组织在斯里赫里戈达岛萨迪什·达万航天中心成功用PSLV-C37 PSLV-C37火箭发射104颗卫星。 
 
-
+The mission overtakes the previous record of 37 satellites launched by Russia in 2014.
 
 
 ### 信息来源:
 
-1. [BBC](http://www.bbc.com/news/world-asia-india-38977803)
+1. [BBC](http://www.bbc.com/news/world-asia-india-38977803) [IMG](https://ichef.bbci.co.uk/images/ic/1024x576/p04syzkp.jpg)
 
 ### 有关:
 

@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [自由時報](http://news.ltn.com.tw/news/world/breakingnews/1022380)
+1. [自由時報](http://news.ltn.com.tw/news/world/breakingnews/1022380) [IMG](https://img.ltn.com.tw/Upload/news/600/2014/06/03/phpFtqZpk.jpg)
 
 ### 有关:
 
