@@ -14,6 +14,8 @@
 
 ## [昨天](/news/2019/11/4/index.md)
 
+##### 荷兰
+### [ 荷兰南荷蘭省霍赫马德 (霍赫马德) (Hoogmade) ](/zh/news/2019/11/4/荷兰南荷蘭省霍赫马德-霍赫马德-Hoogmade.md)
 ##### 伊朗
 ### [ 伊朗宣布在纳坦兹伊朗核设施 facilities in Iran ](/zh/news/2019/11/4/伊朗宣布在纳坦兹伊朗核设施-facilities-in-Iran.md)
 ##### 美國國務院
