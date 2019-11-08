@@ -40,7 +40,7 @@
 ### [ 加拿大皇家骑警在全国范围内，搜捕在蒙克顿枪击案中杀死3名警察的24岁枪手。 [http:--www.cnn.com-2014-06-05-justice-seattle-campus-shooting-index.html (http:--www.washingtonpost.com-news-post-nation-wp-2014-06-05-shooting-at-seattle-pacific-university-?wpisrc=al_national ("Washington Post"))] ](/zh/news/2014/06/1/加拿大皇家骑警在全国范围内-搜捕在蒙克顿枪击案中杀死3名警察的24岁枪手-http-wwwcnncom-2.md)
 ##### 巴基斯坦
 ### [ 巴基斯坦警方已逮捕多名参与投石杀人事件的人士，总羁押人数达到12名。 ](/zh/news/2014/06/1/巴基斯坦警方已逮捕多名参与投石杀人事件的人士-总羁押人数达到12名.md)
-##### 中國
+##### 中華人民共和國
 ### [ 中华人民共和国声称已就最近在新疆地区策划恐怖袭击事件，逮捕29人。 ](/zh/news/2014/06/1/中华人民共和国声称已就最近在新疆地区策划恐怖袭击事件-逮捕29人.md)
 ##### 愛爾蘭
 ### [ 一名爱尔兰大主教，宣称天主教教会没有将796名儿童埋葬在蒂厄姆某座建筑的废弃混凝土化粪池中的记录。 [http:--www.bbc.com-news-world-europe-27710206 (http:--edition.cnn.com-2014-06-04-world-europe-ireland-children-bodies-tuam- (CNN) http:--www.theguardian.com-commentisfree-2014-jun-04-children-galway-mass-graves-ireland-catholic-church (卫报))] ](/zh/news/2014/06/1/一名爱尔兰大主教-宣称天主教教会没有将796名儿童埋葬在蒂厄姆某座建筑的废弃混凝土化粪池中的记录-http-w.md)
