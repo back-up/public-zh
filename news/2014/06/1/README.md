@@ -40,7 +40,7 @@
 ### [ 加拿大皇家骑警在全国范围内，搜捕在蒙克顿枪击案中杀死3名警察的24岁枪手。 [http:--www.cnn.com-2014-06-05-justice-seattle-campus-shooting-index.html (http:--www.washingtonpost.com-news-post-nation-wp-2014-06-05-shooting-at-seattle-pacific-university-?wpisrc=al_national ("Washington Post"))] ](/zh/news/2014/06/1/加拿大皇家骑警在全国范围内-搜捕在蒙克顿枪击案中杀死3名警察的24岁枪手-http-wwwcnncom-2.md)
 ##### 巴基斯坦
 ### [ 巴基斯坦警方已逮捕多名参与投石杀人事件的人士，总羁押人数达到12名。 ](/zh/news/2014/06/1/巴基斯坦警方已逮捕多名参与投石杀人事件的人士-总羁押人数达到12名.md)
-##### 中華人民共和國
+##### 中華人民共和国
 ### [ 中华人民共和国声称已就最近在新疆地区策划恐怖袭击事件，逮捕29人。 ](/zh/news/2014/06/1/中华人民共和国声称已就最近在新疆地区策划恐怖袭击事件-逮捕29人.md)
 ##### 愛爾蘭
 ### [ 一名爱尔兰大主教，宣称天主教教会没有将796名儿童埋葬在蒂厄姆某座建筑的废弃混凝土化粪池中的记录。 [http:--www.bbc.com-news-world-europe-27710206 (http:--edition.cnn.com-2014-06-04-world-europe-ireland-children-bodies-tuam- (CNN) http:--www.theguardian.com-commentisfree-2014-jun-04-children-galway-mass-graves-ireland-catholic-church (卫报))] ](/zh/news/2014/06/1/一名爱尔兰大主教-宣称天主教教会没有将796名儿童埋葬在蒂厄姆某座建筑的废弃混凝土化粪池中的记录-http-w.md)
@@ -98,7 +98,7 @@
 ### [ 也門政府軍攻擊什葉派胡西叛軍在阿姆蘭省的據點，約100名胡西成員及約20名政府軍被殺。 ](/zh/news/2014/06/1/也門政府軍攻擊什葉派胡西叛軍在阿姆蘭省的據點-約100名胡西成員及約20名政府軍被殺.md)
 ##### Indian Police Service
 ### [ 印度警方（Indian Police Service）使用水砲驅散了聚集在省長亞達夫（Akhilesh Yadav）所在的辦公大樓外抗議的數百名群眾。一對表姊妹上周被發現-{吊死}-在芒果樹，驗屍後發現兩人生前均遭到輪姦，但警方卻因為兩女的身分是賤民，不願受理辦案。 ](/zh/news/2014/06/1/印度警方-Indian-Police-Service-使用水砲驅散了聚集在省長亞達夫-Akhilesh-Yadav-所.md)
-##### 中國大陸
+##### 中國
 ### [ 中國大陸用戶自上周末開始，無法使用Google搜索、Google翻譯、GMail等服務，上一次是在2012年，封鎖時間為12小時左右。Google聲明稱，經過全面檢查，已確認問題不在他們這邊；而中國官員拒絕對此（封鎖）發表任何評論。路透社再引述一名用戶在中國獨有的微博（類似Twitter）中的留言：「那些官員快把我逼瘋了!」 ](/zh/news/2014/06/1/中國大陸用戶自上周末開始-無法使用Google搜索-Google翻譯-GMail等服務-上一次是在2012年-封鎖時間.md)
 ##### 巴勒斯坦
 ### [ 巴勒斯坦的新團結政府（Palestinian unity government）內閣今日正式宣布就職。監誓人為巴勒斯坦民族权力机构主席马哈茂德·阿巴斯，內閣總理由拉米·哈马达拉擔任。以色列總理本雅明·内塔尼亚胡已表明不會承認該政府。 ](/zh/news/2014/06/1/巴勒斯坦的新團結政府-Palestinian-unity-government-內閣今日正式宣布就職-監誓人為巴勒斯坦.md)
