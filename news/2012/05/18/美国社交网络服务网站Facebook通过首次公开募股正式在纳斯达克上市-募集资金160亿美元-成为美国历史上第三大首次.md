@@ -15,5 +15,5 @@
 1. [ 沙特阿拉伯国家石油公司宣布启动首次公开募股，将在沙特证券交易所 ](/zh/news/2019/11/3/沙特阿拉伯国家石油公司宣布启动首次公开募股-将在沙特证券交易所.md) _消息: 首次公开募股_
 2. [民主黨籍總統候選人伊利沙伯·禾倫宣布，她如果當選成為總統的話，她會設法把亞馬遜公司、Facebook和Google等大型科技公司拆細，以提高企業間的競爭力和保護小型公司。 ](/zh/news/2019/03/9/民主黨籍總統候選人伊利沙伯-禾倫宣布-她如果當選成為總統的話-她會設法把亞馬遜公司-Facebook和Google等大型.md) _消息: Facebook_
 3. [批判俄羅斯普京政府管治的活躍團體Pussy Riot在FB表示，曾強行闖入世界盃決賽表達抗議當局的四名成員連夜被警方扣留，各人不獲准進食、睡眠或洗澡，被扣留人士亦不能會見律師，質疑警方的做法違法。各人被控兩項「輕罪」（misdemeanor），面臨最多15日監禁 ](/zh/news/2018/07/16/批判俄羅斯普京政府管治的活躍團體Pussy-Riot在FB表示-曾強行闖入世界盃決賽表達抗議當局的四名成員連夜被警方扣留.md) _消息: Facebook_
-4. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: Facebook_
-5. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: Facebook_
+4. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: Facebook_
+5. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: Facebook_
