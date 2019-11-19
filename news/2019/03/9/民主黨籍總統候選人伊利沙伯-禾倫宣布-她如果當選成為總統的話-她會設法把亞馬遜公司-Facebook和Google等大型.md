@@ -15,5 +15,5 @@ The US Democratic presidential hopeful tells a rally she is "sick of freeloading
 1. [ 非裔美国人、前马萨诸塞州马萨诸塞州州长 of Massachusetts ](/zh/news/2019/11/14/非裔美国人-前马萨诸塞州马萨诸塞州州长-of-Massachusetts.md) _消息: 2020年美国总统选举, 民主党_
 2. [前科羅拉多州州長約翰·希肯盧珀宣布參加民主黨黨內的總統候選人初選。 ](/zh/news/2019/03/4/前科羅拉多州州長約翰-希肯盧珀宣布參加民主黨黨內的總統候選人初選.md) _消息: 2020年美国总统选举, 民主党_
 3. [現任華盛頓州州長傑伊·英斯利宣布參加民主黨黨內的總統候選人初選，並以氣候變遷和環保議題作為競選政綱的主題。 ](/zh/news/2019/03/1/現任華盛頓州州長傑伊-英斯利宣布參加民主黨黨內的總統候選人初選-並以氣候變遷和環保議題作為競選政綱的主題.md) _消息: 2020年美国总统选举, 民主党_
-4. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: Facebook, Google_
-5. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: Facebook, Google_
+4. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: Facebook, Google_
+5. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: Facebook, Google_

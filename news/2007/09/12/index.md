@@ -6,7 +6,7 @@
 ### [菲律賓前總統埃斯特拉達被控嚴重貪污罪名成立，被馬尼拉反貪污法庭判處終身監禁。[http:--afp.google.com-article-ALeqM5jZLfQcwnAblFilUunc2dCnWWy3oA 法新社]date=十一月 2017 ](/zh/news/2007/09/12/菲律賓前總統埃斯特拉達被控嚴重貪污罪名成立-被馬尼拉反貪污法庭判處終身監禁-http-afpgooglecom.md)
 ##### 印度尼西亚
 ### [印度尼西亞蘇門答臘島沿海先后發生芮氏規模8.2級的強烈地震，全印度洋發布海嘯警報。[https:--web.archive.org-web-20070912174447-http:--www.cnn.com-2007-WORLD-asiapcf-09-12-indonesia.quake-index.html CNN] [http:--news.bbc.co.uk-1-hi-world-asia-pacific-6991134.stm BBC] [http:--www3.nhk.or.jp-news-2007-09-12-k20070912000188.html NHK]date=十一月 2017 ](/zh/news/2007/09/12/印度尼西亞蘇門答臘島沿海先后發生芮氏規模82級的強烈地震-全印度洋發布海嘯警報-https-webarchiv.md)
-##### 俄羅斯
+##### 俄罗斯
 ### [俄罗斯总理弗拉德科夫辞职，并获得总统弗拉基米尔·普京的批准。](/zh/news/2007/09/12/俄罗斯总理弗拉德科夫辞职-并获得总统弗拉基米尔-普京的批准.md)
 ##### ARH-70直升机
 ### [ARH-70直升机项目获得参议院新拨款。](/zh/news/2007/09/12/ARH-70直升机项目获得参议院新拨款.md)

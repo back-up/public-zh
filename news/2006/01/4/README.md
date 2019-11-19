@@ -4,7 +4,7 @@
 ### [以色列总理阿里埃勒·沙龙因脑溢血被送医。[http:--news.xinhuanet.com-world-2006-01-05-content_4011521.htm 新华网][https:--web.archive.org-web-20060110083409-http:--news.chinatimes.com-Chinatimes-newslist-newslist-content-0,3546,110110+112006010500690,00.html 中時電子報][http:--news.chinatimes.com-Chinatimes-newslist-newslist-content-0,3546,110504+112006010600071,00.html 中時電子報]date=2018年5月 ](/zh/news/2006/01/4/以色列总理阿里埃勒-沙龙因脑溢血被送医-http-newsxinhuanetcom-world-2006-01.md)
 ##### 土耳其
 ### [土耳其宣布发现两起禽流感病例，其中一例已经死亡。](/zh/news/2006/01/4/土耳其宣布发现两起禽流感病例-其中一例已经死亡.md)
-##### 俄羅斯
+##### 俄罗斯
 ### [俄羅斯與烏克蘭就天然氣價格問題簽署協議，合同期五年。[http:--www5.chinesenewsnet.com-MainNews-SinoNews-Mainland-2006_1_4_3_36_48_630.html 多維新聞網]date=十一月 2017 ](/zh/news/2006/01/4/俄羅斯與烏克蘭就天然氣價格問題簽署協議-合同期五年-http-www5chinesenewsnetcom-Ma.md)
 ##### 印尼
 ### [印尼警方表示，中爪哇省降下豪雨，引發山崩掩埋上百間房舍，兩百多人遭活埋，搜救人員正努力搜尋生還者。](/zh/news/2006/01/4/印尼警方表示-中爪哇省降下豪雨-引發山崩掩埋上百間房舍-兩百多人遭活埋-搜救人員正努力搜尋生還者.md)

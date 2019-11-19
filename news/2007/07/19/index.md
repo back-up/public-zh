@@ -10,7 +10,7 @@
 ### [杜瓊斯指數首度以14,000點收市。[http:--money.cnn.com-news-newsfeeds-articles-djf500-200707191817DOWJONESDJONLINE001153_FORTUNE5.htm CNN]date=十一月 2017 ](/zh/news/2007/07/19/杜瓊斯指數首度以14000點收市-http-moneycnncom-news-newsfeeds-artic.md)
 ##### 日本
 ### [日本基金經理村上世彰被裁定內線交易罪名成立，判處2年有期徒刑。[http:--news.money.chinatimes.com-CMoney-News-News-Page-0,4442,content+110601+112007072000498,00.html 中國時報]date=2018年5月 ](/zh/news/2007/07/19/日本基金經理村上世彰被裁定內線交易罪名成立-判處2年有期徒刑-http-newsmoneychinatimes.md)
-##### 俄羅斯
+##### 俄罗斯
 ### [俄羅斯為報復英國較早前驅逐其四名外交官，宣佈驅逐四名英國外交官。](/zh/news/2007/07/19/俄羅斯為報復英國較早前驅逐其四名外交官-宣佈驅逐四名英國外交官.md)
 ## [前一天...](/zh/news/2007/07/18/index.md)
 
