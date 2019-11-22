@@ -21,4 +21,4 @@ The shooting at a game Friday night in Pleasantville, New Jersey, left a 10-year
 7. [ 美国纽约纽约大都会惩教中心 Correctional Center, New York of Jeffrey Epstein Noel）和迈克尔·托马斯（en Thomas）被控玩忽职守。检方指控，两人未按照规定每隔半小时检查一次杰弗里·爱泼斯坦的情况，而是在上班时间睡觉、上网、走动，事后伪造监狱记录。 ](/zh/news/2019/11/19/美国纽约纽约大都会惩教中心-Correctional-Center-New-York-of-Jeffrey-Epst.md) _消息: 美_
 8. [ 当地时间18时左右，美国加利福尼亚州弗雷斯诺发生2019年弗雷斯诺枪击案 party shooting](/zh/news/2019/11/17/当地时间18时左右-美国加利福尼亚州弗雷斯诺发生2019年弗雷斯诺枪击案-party-shooting.md) _消息: 美_
 9. [ 美国路易斯安那州举行2019年路易斯安那州州长选举 Louisiana gubernatorial election of governors of Louisiana Bel Edwards击败共和党候选人埃迪‧里斯彭 Rispone。約翰‧貝爾‧愛德華茲是民主党在南方的唯一一位州长。 ](/zh/news/2019/11/16/美国路易斯安那州举行2019年路易斯安那州州长选举-Louisiana-gubernatorial-election.md) _消息: 美_
-10. [ 美国加利福尼亚州聖塔克拉利塔en High School (California) High School shooting ](/zh/news/2019/11/14/美国加利福尼亚州聖塔克拉利塔en-High-School-California-High-School-shoot.md) _消息: 美_
+10. [影响加勒比地区的颶風桑迪登陆美国新泽西州大西洋城，此次飓风已造成70人死亡。另中央社「紐約」綜合外電報導，珊迪（Sandy）於晚間強襲美國東岸。之前先是在加勒比海造成至少69人死亡。之後繼續北移，強襲美國東北部、東岸中部各州及五大湖（Great Lakes）地區。當局表示，8個州至少有43~51人喪命。](/zh/news/2012/10/29/影响加勒比地区的颶風桑迪登陆美国新泽西州大西洋城-此次飓风已造成70人死亡-另中央社-紐約-綜合外電報導-珊迪-Sand.md) _消息: 新泽西州, 美_

@@ -18,3 +18,6 @@ Insights from Googlers into our products, technology, and the Google culture
 3. [ 香港各中學及大專院校師生，為反對中國政府對普選香港特別行政區行政長官設限而進行為期五日的2014年香港學界大罷課。 ](/zh/news/2014/09/1/香港各中學及大專院校師生-為反對中國政府對普選香港特別行政區行政長官設限而進行為期五日的2014年香港學界大罷課.md) _消息: 中國政府_
 4. [ 谷歌公司宣布停止对谷歌中国搜索服务的内容审查，并将搜索服务由中国大陆转至香港。](/zh/news/2010/03/23/谷歌公司宣布停止对谷歌中国搜索服务的内容审查-并将搜索服务由中国大陆转至香港.md) _消息: 谷歌中国_
 5. [Google公司推出其網頁瀏覽器——Google Chrome。](/zh/news/2008/09/2/Google公司推出其網頁瀏覽器-Google-Chrome.md) _消息: Google公司_
+6. [美国Google公司正式推出Knol在线百科服务，与维基百科不同，Knol每篇文章只有一位署名作者，并且可以和作者进行广告收入分成。](/zh/news/2008/07/23/美国Google公司正式推出Knol在线百科服务-与维基百科不同-Knol每篇文章只有一位署名作者-并且可以和作者进行广.md) _消息: Google公司_
+7. [中國政府與西藏流亡精神領袖第十四世達賴喇嘛特使進行閉門會談。](/zh/news/2007/05/16/中國政府與西藏流亡精神領袖第十四世達賴喇嘛特使進行閉門會談.md) _消息: 中國政府_
+8. [ Google公司推出 [http:--video.google.com- Google Video] 服务。目前该服务仍处于β测试阶段。](/zh/news/2005/01/25/Google公司推出-http-videogooglecom-Google-Video-服务-目前该服务.md) _消息: Google公司_

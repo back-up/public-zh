@@ -15,5 +15,10 @@
 1. [ 沙特阿拉伯国家石油公司宣布启动首次公开募股，将在沙特证券交易所 ](/zh/news/2019/11/3/沙特阿拉伯国家石油公司宣布启动首次公开募股-将在沙特证券交易所.md) _消息: 首次公开募股_
 2. [民主黨籍總統候選人伊利沙伯·禾倫宣布，她如果當選成為總統的話，她會設法把亞馬遜公司、Facebook和Google等大型科技公司拆細，以提高企業間的競爭力和保護小型公司。 ](/zh/news/2019/03/9/民主黨籍總統候選人伊利沙伯-禾倫宣布-她如果當選成為總統的話-她會設法把亞馬遜公司-Facebook和Google等大型.md) _消息: Facebook_
 3. [批判俄羅斯普京政府管治的活躍團體Pussy Riot在FB表示，曾強行闖入世界盃決賽表達抗議當局的四名成員連夜被警方扣留，各人不獲准進食、睡眠或洗澡，被扣留人士亦不能會見律師，質疑警方的做法違法。各人被控兩項「輕罪」（misdemeanor），面臨最多15日監禁 ](/zh/news/2018/07/16/批判俄羅斯普京政府管治的活躍團體Pussy-Riot在FB表示-曾強行闖入世界盃決賽表達抗議當局的四名成員連夜被警方扣留.md) _消息: Facebook_
-4. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: Facebook_
-5. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: Facebook_
+4. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: Facebook_
+5. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: Facebook_
+6. [泰國英文報章《曼谷郵報》（Bangkok Post）的總編輯Umesh Pandey晚上在FB發文，指由於他持續發表批評泰國軍政府的報道，拒絕接受董事會成員停止做法的指令而被董事會辭退 ](/zh/news/2018/05/14/泰國英文報章-曼谷郵報-Bangkok-Post-的總編輯Umesh-Pandey晚上在FB發文-指由於他持續發表批評.md) _消息: Facebook_
+7. [Facebook创始人兼CEO马克·扎克伯格在其Facebook主页上发表声明，就5000万美国Facebook用户个人信息遭数据公司剑桥分析（Cambridge Analytica）盗用并滥用丑闻，承认“犯错”，破坏了 Facebook 与用户之间的信任，承诺将进行一系列改革，使得用户信息难以被其他应用程序收集 ](/zh/news/2018/03/21/Facebook创始人兼CEO马克-扎克伯格在其Facebook主页上发表声明-就5000万美国Facebook用户个人.md) _消息: Facebook_
+8. [ AMR公司 Corporation與全美航空集團 Airways Group合併，組成了美國航空集團並於納斯達克開始交易 ](/zh/news/2013/12/9/AMR公司-Corporation與全美航空集團-Airways-Group合併-組成了美國航空集團並於納斯達克開始交.md) _消息: 納斯達克_
+9. [ 社交网站Facebook正式向美国证券交易委员会提交IPO初步招股说明书，融资50亿美元。这将是美国股市近四年来规模最大的IPO交易。](/zh/news/2012/02/2/社交网站Facebook正式向美国证券交易委员会提交IPO初步招股说明书-融资50亿美元-这将是美国股市近四年来规模最.md) _消息: Facebook_
+10. [第68届美国电影电视金球奖颁奖典礼在好莱坞贝弗利山希尔顿酒店举行。反映“Facebook”网站创建经历的传记片《社交网络》摘得包括最佳剧情类影片和最佳导演两项大奖在内的四个奖项。](/zh/news/2011/01/16/第68届美国电影电视金球奖颁奖典礼在好莱坞贝弗利山希尔顿酒店举行-反映-Facebook-网站创建经历的传记片-社交网络.md) _消息: Facebook_
