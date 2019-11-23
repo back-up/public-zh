@@ -8,9 +8,9 @@
 
 ### 有关:
 
-1. [ 2019年弗吉尼亚州选举 Virginia elections House of Delegates和弗吉尼亚州参议院 of Virginia赢得多数。2019年肯塔基州州长选举 Kentucky gubernatorial election Beshear宣布自己击败现任州长共和党人馬特·貝文胜出；馬特·貝文声称选举有违规行为，要求选举机构检查计票机器和缺席投票。有分析认为，选举结果显示，唐纳德·特朗普时代美国城郊的中间派选民正在远离共和党。共和党在2019年密西西比州州长选举 Mississippi gubernatorial election Reeves击败州检察长民主党人吉姆·胡德 Hood。](/zh/news/2019/11/6/2019年弗吉尼亚州选举-Virginia-elections-House-of-Delegates和弗吉尼亚州参议院.md) _消息: 共和党, 民主党_
-2. [ 美国路易斯安那州举行2019年路易斯安那州州长选举 Louisiana gubernatorial election of governors of Louisiana Bel Edwards击败共和党候选人埃迪‧里斯彭 Rispone。約翰‧貝爾‧愛德華茲是民主党在南方的唯一一位州长。 ](/zh/news/2019/11/16/美国路易斯安那州举行2019年路易斯安那州州长选举-Louisiana-gubernatorial-election.md) _消息: 共和党, 民主党_
-3. [ 非裔美国人、前马萨诸塞州马萨诸塞州州长 of Massachusetts ](/zh/news/2019/11/14/非裔美国人-前马萨诸塞州马萨诸塞州州长-of-Massachusetts.md) _消息: 民主党_
+1. [ 美国路易斯安那州举行2019年路易斯安那州州长选举 Louisiana gubernatorial election of governors of Louisiana Bel Edwards击败共和党候选人埃迪‧里斯彭 Rispone。約翰‧貝爾‧愛德華茲是民主党在南方的唯一一位州长。 ](/zh/news/2019/11/16/美国路易斯安那州举行2019年路易斯安那州州长选举-Louisiana-gubernatorial-election.md) _消息: 共和党, 民主党_
+2. [ 非裔美国人、前马萨诸塞州马萨诸塞州州长 of Massachusetts ](/zh/news/2019/11/14/非裔美国人-前马萨诸塞州马萨诸塞州州长-of-Massachusetts.md) _消息: 民主党_
+3. [ 2019年弗吉尼亚州选举 Virginia elections House of Delegates和弗吉尼亚州参议院 of Virginia赢得多数。2019年肯塔基州州长选举 Kentucky gubernatorial election Beshear宣布自己击败现任州长共和党人馬特·貝文胜出；馬特·貝文声称选举有违规行为，要求选举机构检查计票机器和缺席投票。有分析认为，选举结果显示，唐纳德·特朗普时代美国城郊的中间派选民正在远离共和党。共和党在2019年密西西比州州长选举 Mississippi gubernatorial election Reeves击败州检察长民主党人吉姆·胡德 Hood。](/zh/news/2019/11/6/2019年弗吉尼亚州选举-Virginia-elections-House-of-Delegates和弗吉尼亚州参议院.md) _消息: 共和党, 民主党_
 4. [美國有數州在大選同時進行是否容許大麻合法化的投票，其中加利福尼亚州、内华达州、麻薩諸塞州投票通過容許「休閒用途」的吸食大麻，而在亞利桑那州則被投票否決。此外佛罗里达州和北达科他州投票通過藥用大麻合法化。 ](/zh/news/2016/11/9/美國有數州在大選同時進行是否容許大麻合法化的投票-其中加利福尼亚州-内华达州-麻薩諸塞州投票通過容許-休閒用途-的吸食大.md) _消息: 亞利桑那州, 内华达州_
 5. [2016年美国总统选举结果正式出炉，共和党候选人唐納德·川普击败民主党候选人希拉里·克林顿，意外當選美國第45任總統。 ](/zh/news/2016/11/9/2016年美国总统选举结果正式出炉-共和党候选人唐納德-川普击败民主党候选人希拉里-克林顿-意外當選美國第45任總統.md) _消息: 共和党, 民主党_
 6. [ 美国共和党候选人斯科特·布朗在国会参议院的特别选举中当选为代表马萨诸塞州的参议员，使民主党失去在参议院的绝对多数地位。](/zh/news/2010/01/19/美国共和党候选人斯科特-布朗在国会参议院的特别选举中当选为代表马萨诸塞州的参议员-使民主党失去在参议院的绝对多数地位.md) _消息: 共和党, 民主党_
