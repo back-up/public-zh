@@ -1,6 +1,6 @@
 ## [2012-05-15](/zh/news/2012/05/15/index.md)
 
-##### 哥倫比亞
+##### 哥伦比亚
 ### [ 哥伦比亚首都波哥大的一枚炸弹炸伤了前任内政部长Ministry of the Interior and Justice (Colombia) of the Interior and Justice (Colombia) Londoño Hoyos，炸死了他的司机和一名警察。 ](/zh/news/2012/05/15/哥伦比亚首都波哥大的一枚炸弹炸伤了前任内政部长Ministry-of-the-Interior-and-Justice.md)
 ##### 也门
 ### [ 在也门政府军攻击津吉巴尔和Jaar 的行动中，有至少44人死亡。其中包括3名士兵和至少11名平民。 ](/zh/news/2012/05/15/在也门政府军攻击津吉巴尔和Jaar-的行动中-有至少44人死亡-其中包括3名士兵和至少11名平民.md)

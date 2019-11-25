@@ -6,7 +6,7 @@
 ### [中国联通宣布，将以换股的方式合并中国网通，合并交易总规模按中国联通股票市值计算约为4391.67亿港元。同时将以1100亿元人民币的价格向中国电信出售CDMA网络。](/zh/news/2008/06/2/中国联通宣布-将以换股的方式合并中国网通-合并交易总规模按中国联通股票市值计算约为439167亿港元-同时将以1100.md)
 ##### 巴基斯坦
 ### [巴基斯坦伊斯兰堡的丹麦丹麥大使館 of diplomatic missions of Denmark](/zh/news/2008/06/2/巴基斯坦伊斯兰堡的丹麦丹麥大使館-of-diplomatic-missions-of-Denmark.md)
-##### 韩
+##### 韩国
 ### [韓國政府農業部在群眾壓力下宣布，押後恢復自美國進口牛肉的決定。[http:--afp.google.com-article-ALeqM5jEcbd2395jMkWIJ5mP66vmxYQL5Q 法新社]date=十一月 2017 ](/zh/news/2008/06/2/韓國政府農業部在群眾壓力下宣布-押後恢復自美國進口牛肉的決定-http-afpgooglecom-articl.md)
 ## [前一天...](/zh/news/2008/06/1/index.md)
 
