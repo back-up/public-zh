@@ -1,5 +1,7 @@
 ## [2019-11-17](/zh/news/2019/11/17/index.md)
 
+##### 白俄罗斯
+### [ 白俄罗斯举行2019年白俄罗斯议会选举 Belarusian parliamentary election ](/zh/news/2019/11/17/白俄罗斯举行2019年白俄罗斯议会选举-Belarusian-parliamentary-election.md)
 ##### 美
 ### [ 当地时间18时左右，美国加利福尼亚州弗雷斯诺发生2019年弗雷斯诺枪击案 party shooting](/zh/news/2019/11/17/当地时间18时左右-美国加利福尼亚州弗雷斯诺发生2019年弗雷斯诺枪击案-party-shooting.md)
 ##### 香港理工大學
