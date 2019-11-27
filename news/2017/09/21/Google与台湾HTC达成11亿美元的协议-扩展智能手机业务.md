@@ -21,4 +21,4 @@ The tie-up marks the latest push by Google to boost its hardware business.
 7. [Google宣布，即日起不再承認中國互聯網絡信息中心所頒發的電子證書，意即未來使用chrome浏览器浏览使用其证书的網站，用戶會收到該網站不安全的警告。](/zh/news/2015/04/2/Google宣布-即日起不再承認中國互聯網絡信息中心所頒發的電子證書-意即未來使用chrome浏览器浏览使用其证书的網站.md) _消息: Google_
 8. [ Google宣佈1月20日起停售現行Google眼鏡 ](/zh/news/2015/01/16/Google宣佈1月20日起停售現行Google眼鏡.md) _消息: Google_
 9. [ Google的全新手机操作系统Android5.0正式发布，含64位版](/zh/news/2014/10/13/Google的全新手机操作系统Android50正式发布-含64位版.md) _消息: Google_
-10. [ 中國大陸用戶自上周末開始，無法使用Google搜索、Google翻譯、GMail等服務，上一次是在2012年，封鎖時間為12小時左右。Google聲明稱，經過全面檢查，已確認問題不在他們這邊；而中國官員拒絕對此（封鎖）發表任何評論。路透社再引述一名用戶在中國獨有的微博（類似Twitter）中的留言：「那些官員快把我逼瘋了!」 ](/zh/news/2014/06/1/中國大陸用戶自上周末開始-無法使用Google搜索-Google翻譯-GMail等服務-上一次是在2012年-封鎖時間.md) _消息: Google_
+10. [ 微软正式公布了其下一代智能和手机操作系统Windows Phone 7，并首批推出了10款新品，分别来自HTC、三星、LG和戴尔等手机厂商。](/zh/news/2010/10/11/微软正式公布了其下一代智能和手机操作系统Windows-Phone-7-并首批推出了10款新品-分别来自HTC-三星.md) _消息: HTC_

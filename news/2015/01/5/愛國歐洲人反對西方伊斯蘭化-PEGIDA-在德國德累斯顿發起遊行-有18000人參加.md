@@ -9,3 +9,7 @@ Rallies for and against the "anti-Islamisation" group Pegida have been held in a
 ### 信息来源:
 
 1. [BBC](http://www.bbc.co.uk/news/world-europe-30685842) [IMG](https://ichef.bbci.co.uk/news/1024/media/images/80078000/jpg/_80078468_hi025288693.jpg)
+
+### 有关:
+
+1. [ 当地时间5时左右，窃贼进入德国萨克森州德累斯顿绿穹珍宝馆，盗走多件珠宝。 ](/zh/news/2019/11/25/当地时间5时左右-窃贼进入德国萨克森州德累斯顿绿穹珍宝馆-盗走多件珠宝.md) _消息: 德累斯顿_

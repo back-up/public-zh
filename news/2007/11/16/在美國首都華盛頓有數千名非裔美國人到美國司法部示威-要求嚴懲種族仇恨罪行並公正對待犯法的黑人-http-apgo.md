@@ -8,13 +8,13 @@
 
 ### 有关:
 
-1. [ 非裔美国人、前马萨诸塞州马萨诸塞州州长 of Massachusetts ](/zh/news/2019/11/14/非裔美国人-前马萨诸塞州马萨诸塞州州长-of-Massachusetts.md) _消息: 非裔美国人_
-2. [美国司法部副部長羅德·羅森斯坦 Rosenstein宣佈辭職，將於5月11日離任 ](/zh/news/2019/04/29/美国司法部副部長羅德-羅森斯坦-Rosenstein宣佈辭職-將於5月11日離任.md) _消息: 美国司法部_
-3. [美国司法部發表特別檢察官羅伯特·穆勒「通俄門」調查報告摘要，认为總統特朗普及其竞选团队没有在2016年大选中串通俄罗斯。 ](/zh/news/2019/03/24/美国司法部發表特別檢察官羅伯特-穆勒-通俄門-調查報告摘要-认为總統特朗普及其竞选团队没有在2016年大选中串通俄罗斯.md) _消息: 美国司法部_
-4. [美國司法部召開記者會，宣佈破獲美國有史以來規模最大的大學入學詐騙和賄賂案。牽涉到影視演員，en Aziz:--cn.nytimes.com-usa-20190313-college-admissions-cheating-scandal-zh-hant- 美國大學招生醜聞：富人把孩子「買」進常春藤] ](/zh/news/2019/03/13/美國司法部召開記者會-宣佈破獲美國有史以來規模最大的大學入學詐騙和賄賂案-牽涉到影視演員-en-Aziz-cnny.md) _消息: 美国司法部_
-5. [美國國土安全部長克絲珍·尼爾森 Nielsen crime#Fraud and wire fraud、共謀詐欺美國政府 against the United States、洗錢、竊盜商業秘密與技術、利誘雇員在世界各地偷竊機密、妨礙司法 of Justice、違反對伊朗之制裁 against Iran等共23項刑事控罪並正式向加拿大提出引渡申請。 [https:--www.justice.gov-opa-gallery-acting-attorney-general-whitaker-announces-national-security-related-criminal-charges (美國司法部)] [https:--www.justice.gov-opa-pr-chinese-telecommunications-device-manufacturer-and-its-us-affiliate-indicted-theft-trade (美國司法部)] [https:--www.justice.gov-opa-pr-chinese-telecommunications-conglomerate-huawei-and-huawei-cfo-wanzhou-meng-charged-financial (美國司法部)] ](/zh/news/2019/01/28/美國國土安全部長克絲珍-尼爾森-Nielsen-crime-Fraud-and-wire-fraud-共謀詐欺美國政府.md) _消息: 美国司法部_
-6. [美国司法部表示，前CIA特工李振成（Jerry Chun Shing Lee）涉嫌帮助中国确认中情局在华线人而被逮捕，弗吉尼亚州北部的联邦法院指控其非法保留国防信息 ](/zh/news/2018/01/16/美国司法部表示-前CIA特工李振成-Jerry-Chun-Shing-Lee-涉嫌帮助中国确认中情局在华线人而被逮捕-弗.md) _消息: 美国司法部_
-7. [德意志银行表示與美国司法部達成和解，德銀同意支付72億美元的罰款和消費者救濟。美国司法部早前指控德銀在2008年美国住房市场崩溃前，欺骗投资人购买高风险抵押贷款证券。 ](/zh/news/2016/12/22/德意志银行表示與美国司法部達成和解-德銀同意支付72億美元的罰款和消費者救濟-美国司法部早前指控德銀在2008年美国住房.md) _消息: 美国司法部_
-8. [英國BP公司與美國司法部及美國南部五個州達成協議，該公司同意為2010年墨西哥灣漏油事故賠償187億美元，分18年支付；該協議仍需得到美國法院批准方可落實。 ](/zh/news/2015/07/2/英國BP公司與美國司法部及美國南部五個州達成協議-該公司同意為2010年墨西哥灣漏油事故賠償187億美元-分18年支付.md) _消息: 美国司法部_
-9. [因2012年時白人警察Michael Brelo執法時開槍射殺一對非裔美國人情侶案於5月23日獲判無罪，美國克里夫蘭街頭再度爆發示威抗議引致暴動，已有超過20人被警方逮捕](/zh/news/2015/05/23/因2012年時白人警察Michael-Brelo執法時開槍射殺一對非裔美國人情侶案於5月23日獲判無罪-美國克里夫蘭街頭.md) _消息: 非裔美国人_
-10. [美國司法部發布新聞稿，起訴六名中國公民：Hao Zhang、Wei Pang、Jinping Chen、Huisui Zhang (Huisui)、Chong Zhou、Zhao Gang，理由為此六人在美國期間，為中國政府進行間諜行為 ](/zh/news/2015/05/18/美國司法部發布新聞稿-起訴六名中國公民-Hao-Zhang-Wei-Pang-Jinping-Chen-Huisui-Z.md) _消息: 美国司法部_
+1. [美國司法部召開記者會，宣佈破獲美國有史以來規模最大的大學入學詐騙和賄賂案。牽涉到影視演員，en Aziz:--cn.nytimes.com-usa-20190313-college-admissions-cheating-scandal-zh-hant- 美國大學招生醜聞：富人把孩子「買」進常春藤] ](/zh/news/2019/03/13/美國司法部召開記者會-宣佈破獲美國有史以來規模最大的大學入學詐騙和賄賂案-牽涉到影視演員-en-Aziz-cnny.md) _消息: 美国司法部_
+2. [美國國土安全部長克絲珍·尼爾森 Nielsen crime#Fraud and wire fraud、共謀詐欺美國政府 against the United States、洗錢、竊盜商業秘密與技術、利誘雇員在世界各地偷竊機密、妨礙司法 of Justice、違反對伊朗之制裁 against Iran等共23項刑事控罪並正式向加拿大提出引渡申請。 [https:--www.justice.gov-opa-gallery-acting-attorney-general-whitaker-announces-national-security-related-criminal-charges (美國司法部)] [https:--www.justice.gov-opa-pr-chinese-telecommunications-device-manufacturer-and-its-us-affiliate-indicted-theft-trade (美國司法部)] [https:--www.justice.gov-opa-pr-chinese-telecommunications-conglomerate-huawei-and-huawei-cfo-wanzhou-meng-charged-financial (美國司法部)] ](/zh/news/2019/01/28/美國國土安全部長克絲珍-尼爾森-Nielsen-crime-Fraud-and-wire-fraud-共謀詐欺美國政府.md) _消息: 美国司法部_
+3. [英國BP公司與美國司法部及美國南部五個州達成協議，該公司同意為2010年墨西哥灣漏油事故賠償187億美元，分18年支付；該協議仍需得到美國法院批准方可落實。 ](/zh/news/2015/07/2/英國BP公司與美國司法部及美國南部五個州達成協議-該公司同意為2010年墨西哥灣漏油事故賠償187億美元-分18年支付.md) _消息: 美国司法部_
+4. [ 美国司法部宣布对法国巴黎银行处以90亿美元的罚款，以惩罚其违反禁令而与古巴、伊朗和苏丹共和国从事交易。 ](/zh/news/2014/07/1/美国司法部宣布对法国巴黎银行处以90亿美元的罚款-以惩罚其违反禁令而与古巴-伊朗和苏丹共和国从事交易.md) _消息: 美国司法部_
+5. [ 中美两国23日至24日在华盛顿举行人权对话。](/zh/news/2012/07/24/中美两国23日至24日在华盛顿举行人权对话.md) _消息: 华盛顿_
+6. [英国葛兰素史克公司对美国司法部提出的违规营销处方药物等三项指控认罪，并同意支付30亿美元的罚金。](/zh/news/2012/07/2/英国葛兰素史克公司对美国司法部提出的违规营销处方药物等三项指控认罪-并同意支付30亿美元的罚金.md) _消息: 美国司法部_
+7. [ 美國與越南第四輪政治、安全與防務對話在華盛頓舉行。雙方發表共同申明指出，重申加強雙邊關係，並強調南海糾紛需要透過合作的外交方式解決，而非脅迫或用武。](/zh/news/2011/06/17/美國與越南第四輪政治-安全與防務對話在華盛頓舉行-雙方發表共同申明指出-重申加強雙邊關係-並強調南海糾紛需要透過合作的.md) _消息: 华盛顿_
+8. [第三轮中美战略与经济对话在美国首都华盛顿开幕。](/zh/news/2011/05/9/第三轮中美战略与经济对话在美国首都华盛顿开幕.md) _消息: 华盛顿_
+9. [ 核安全峰会全体会议在华盛顿召开。47个国家的领导人或代表，以及联合国、国际原子能机构和欧盟等国际和地区组织负责人力争就加强核安全和减少核恐怖主义威胁议题达成共识。](/zh/news/2010/04/13/核安全峰会全体会议在华盛顿召开-47个国家的领导人或代表-以及联合国-国际原子能机构和欧盟等国际和地区组织负责人力争就.md) _消息: 华盛顿_
+10. [南韓外交通商部長官潘基文，在華盛頓與美國國務卿萊斯舉行第一次韓美部長級戰略對話，雙方就所謂「駐韓美軍之戰略靈活性運作」，達成了共識。[http:--news.chinatimes.com-Chinatimes-newslist-newslist-content-0,3546,110504+112006012100059,00.html 中時電子報]date=2018年5月 ](/zh/news/2006/01/20/南韓外交通商部長官潘基文-在華盛頓與美國國務卿萊斯舉行第一次韓美部長級戰略對話-雙方就所謂-駐韓美軍之戰略靈活性運作.md) _消息: 华盛顿_
