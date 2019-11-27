@@ -1,5 +1,7 @@
 ## [2019-11-17](/zh/news/2019/11/17/index.md)
 
+##### 第比利斯
+### [ 第比利斯民众上街2019年格鲁吉亚抗议 Georgian protests ](/zh/news/2019/11/17/第比利斯民众上街2019年格鲁吉亚抗议-Georgian-protests.md)
 ##### 白俄罗斯
 ### [ 白俄罗斯举行2019年白俄罗斯议会选举 Belarusian parliamentary election ](/zh/news/2019/11/17/白俄罗斯举行2019年白俄罗斯议会选举-Belarusian-parliamentary-election.md)
 ##### 美
