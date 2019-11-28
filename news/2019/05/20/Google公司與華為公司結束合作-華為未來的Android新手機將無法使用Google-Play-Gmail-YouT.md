@@ -16,7 +16,7 @@
 2. [日本東芝公司為了檢查產品有沒有美國出產的組件，暫時停止對中國華為公司進行貨物供給。 ](/zh/news/2019/05/23/日本東芝公司為了檢查產品有沒有美國出產的組件-暫時停止對中國華為公司進行貨物供給.md) _消息: 华为_
 3. [民主黨籍總統候選人伊利沙伯·禾倫宣布，她如果當選成為總統的話，她會設法把亞馬遜公司、Facebook和Google等大型科技公司拆細，以提高企業間的競爭力和保護小型公司。 ](/zh/news/2019/03/9/民主黨籍總統候選人伊利沙伯-禾倫宣布-她如果當選成為總統的話-她會設法把亞馬遜公司-Facebook和Google等大型.md) _消息: Google_
 4. [美國國土安全部長克絲珍·尼爾森 Nielsen crime#Fraud and wire fraud、共謀詐欺美國政府 against the United States、洗錢、竊盜商業秘密與技術、利誘雇員在世界各地偷竊機密、妨礙司法 of Justice、違反對伊朗之制裁 against Iran等共23項刑事控罪並正式向加拿大提出引渡申請。 [https:--www.justice.gov-opa-gallery-acting-attorney-general-whitaker-announces-national-security-related-criminal-charges (美國司法部)] [https:--www.justice.gov-opa-pr-chinese-telecommunications-device-manufacturer-and-its-us-affiliate-indicted-theft-trade (美國司法部)] [https:--www.justice.gov-opa-pr-chinese-telecommunications-conglomerate-huawei-and-huawei-cfo-wanzhou-meng-charged-financial (美國司法部)] ](/zh/news/2019/01/28/美國國土安全部長克絲珍-尼爾森-Nielsen-crime-Fraud-and-wire-fraud-共謀詐欺美國政府.md) _消息: 华为_
-5. [新西蘭政府通訊安全局以國家安全為理由，決定禁止當地其中一家最大網絡供應商Spark使用中國華為的5G設備，並形容使用華為設備將會導致「嚴重國家安全風險」，是繼澳洲之後再有國家以安全理由禁用華為設備 ](/zh/news/2018/11/28/新西蘭政府通訊安全局以國家安全為理由-決定禁止當地其中一家最大網絡供應商Spark使用中國華為的5G設備-並形容使用華為.md) _消息: 华为_
+5. [几个美国新闻网站随后在英国和欧洲下线，包括《洛杉磯時報》，《芝加哥論壇報》等。奥地利隐私组织en – European Center for Digital Rights](/zh/news/2018/05/25/几个美国新闻网站随后在英国和欧洲下线-包括-洛杉磯時報-芝加哥論壇報-等-奥地利隐私组织en-European.md) _消息: Google_
 6. [一名女性持枪闯入美国加利福尼亚州圣布鲁诺YouTube总部，开枪打伤3人后饮弹自杀 ](/zh/news/2018/04/3/一名女性持枪闯入美国加利福尼亚州圣布鲁诺YouTube总部-开枪打伤3人后饮弹自杀.md) _消息: YouTube_
 7. [YouTube網路明星羅根·保羅就在日本青木原森林裡拍攝到一名自殺者的屍體後仍然有說有笑一事而作出道歉。 ](/zh/news/2018/01/3/YouTube網路明星羅根-保羅就在日本青木原森林裡拍攝到一名自殺者的屍體後仍然有說有笑一事而作出道歉.md) _消息: YouTube_
 8. [Google与台湾HTC达成11亿美元的协议，扩展智能手机业务 ](/zh/news/2017/09/21/Google与台湾HTC达成11亿美元的协议-扩展智能手机业务.md) _消息: Google_
