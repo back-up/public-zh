@@ -7,7 +7,7 @@
 ##### Google
 ### [ Google收購專於機器人設計等領域的波士頓動力公司，收購價碼未公開 ](/zh/news/2013/12/13/Google收購專於機器人設計等領域的波士頓動力公司-收購價碼未公開.md)
 ### [ Google因為移除部分Android手機軟體上的隱私保護功能而受到電子前哨基金會等團體的反對 ](/zh/news/2013/12/13/Google因為移除部分Android手機軟體上的隱私保護功能而受到電子前哨基金會等團體的反對.md)
-##### 美
+##### 美国
 ### [ 位於美國科羅拉多州森特尼爾的阿拉帕霍高中 High School (Centennial, Colorado)發生校園槍擊案，至少兩人受傷，槍手則自盡身亡 ](/zh/news/2013/12/13/位於美國科羅拉多州森特尼爾的阿拉帕霍高中-High-School-Centennial-Colorado-發生校園.md)
 ##### 計畫攻擊
 ### [ 一名男子因計畫攻擊美國堪薩斯州的威奇塔中陸機場 Mid-Continent Airport而遭到逮捕 ](/zh/news/2013/12/13/一名男子因計畫攻擊美國堪薩斯州的威奇塔中陸機場-Mid-Continent-Airport而遭到逮捕.md)
