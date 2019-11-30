@@ -1,5 +1,7 @@
 ## [2019-11-28](/zh/news/2019/11/28/index.md)
 
+##### 大韩民国大法院
+### [ 韩国最高法院大韩民国大法院就朴槿惠收受国家情报院特殊活动费一案作出终审判决，撤销二审判决，发回首尔高等法院 ](/zh/news/2019/11/28/韩国最高法院大韩民国大法院就朴槿惠收受国家情报院特殊活动费一案作出终审判决-撤销二审判决-发回首尔高等法院.md)
 ##### 路易斯·阿尔韦托·拉卡列
 ### [ 乌拉圭选举法院 Court of Uruguay确认了2019年乌拉圭大选 Uruguayan general election Alberto Lacalle Pou击败丹尼尔·马丁内斯 Martínez (politician)当选乌拉圭总统。 ](/zh/news/2019/11/28/乌拉圭选举法院-Court-of-Uruguay确认了2019年乌拉圭大选-Uruguayan-general-ele.md)
 ##### 朝鲜
