@@ -1,14 +1,10 @@
-### [2019-11-14](/news/2019/11/14/index.md)
+### [2019-11-24](/news/2019/11/24/index.md)
 
 ##### 美国
-#  美国加利福尼亚州聖塔克拉利塔en High School (California) High School shooting 
-
-Someone opened fire at a high school in the Southern California city of Santa Clarita shortly before classes began Thursday morning, officials said, killing one and injuring several others, and sending some students streaming out of the building as others hid.
+#  美国海豹突击队特种兵爱德华·加拉赫（Edward Gallagher）处分案继续发酵，美国国防部长马克·埃斯珀要求美国海军部长理查德·V·斯賓塞 V. Spencer辞职。
 
 
-### 信息来源:
 
-1. [CNN](https://www.cnn.com/2019/11/14/us/california-school-shooting/index.html) [IMG](https://cdn.cnn.com/cnnnext/dam/assets/191114134941-16-ca-school-school-shooting-1114-super-tease.jpg)
 
 ### 有关:
 
@@ -20,5 +16,5 @@ Someone opened fire at a high school in the Southern California city of Santa Cl
 6. [美國著名問答遊戲節目危險邊緣的主持人亞歷克斯·特里貝克向外界宣布他罹患第四期胰臟癌。 ](/zh/news/2019/03/6/美國著名問答遊戲節目危險邊緣的主持人亞歷克斯-特里貝克向外界宣布他罹患第四期胰臟癌.md) _消息: 美国_
 7. [美國國安局前承包商因洩漏機密給媒體，同日遭判刑5年3個月。](/zh/news/2018/08/24/美國國安局前承包商因洩漏機密給媒體-同日遭判刑5年3個月.md) _消息: 美国_
 8. [伊朗為瑞典企業 Scania 長期經營巴士卡車的市場，銷售量佔約該企業的5%，但受到美國對伊朗提出經濟制裁的影響，銷售量驟降。](/zh/news/2018/08/20/伊朗為瑞典企業-Scania-長期經營巴士卡車的市場-銷售量佔約該企業的5-但受到美國對伊朗提出經濟制裁的影響-銷售量.md) _消息: 美国_
-9. [美国阿拉斯加州太平洋沿岸发生8.2级强烈地震 ](/zh/news/2018/01/23/美国阿拉斯加州太平洋沿岸发生82级强烈地震.md) _消息: 美国_
-10. [加利福尼亚州成为美国娛樂用大麻（en marijuana）合法化最大且人口最多的州份 ](/zh/news/2018/01/1/加利福尼亚州成为美国娛樂用大麻-en-marijuana-合法化最大且人口最多的州份.md) _消息: 加利福尼亞州_
+9. [一名女性持枪闯入美国加利福尼亚州圣布鲁诺YouTube总部，开枪打伤3人后饮弹自杀 ](/zh/news/2018/04/3/一名女性持枪闯入美国加利福尼亚州圣布鲁诺YouTube总部-开枪打伤3人后饮弹自杀.md) _消息: 美国_
+10. [美国阿拉斯加州太平洋沿岸发生8.2级强烈地震 ](/zh/news/2018/01/23/美国阿拉斯加州太平洋沿岸发生82级强烈地震.md) _消息: 美国_
