@@ -1,5 +1,7 @@
 ## [2019-12-3](/zh/news/2019/12/3/index.md)
 
+##### 唐納德·特朗普的彈劾調查报告
+### [ 美国众议院情报委员会 States House Permanent Select Committee on Intelligence发布唐納德·特朗普的彈劾調查报告。 ](/zh/news/2019/12/3/美国众议院情报委员会-States-House-Permanent-Select-Committee-on-Intel.md)
 ##### Google
 ### [ Google母公司Alphabet宣布Google联合创始人拉里·佩奇和谢尔盖·布林分别卸任首席执行官和总裁。Google首席执行官桑达·皮采将出任Alphabet首席执行官。 ](/zh/news/2019/12/3/Google母公司Alphabet宣布Google联合创始人拉里-佩奇和谢尔盖-布林分别卸任首席执行官和总裁-Goog.md)
 ##### 美国总统
