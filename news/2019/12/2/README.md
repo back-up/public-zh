@@ -1,5 +1,7 @@
 ## [2019-12-2](/zh/news/2019/12/2/index.md)
 
+##### 西班牙
+### [ 2019年聯合國氣候變化大會 United Nations Climate Change Conference在西班牙马德里开幕，会期至13日。 ](/zh/news/2019/12/2/2019年聯合國氣候變化大會-United-Nations-Climate-Change-Conference在西班牙.md)
 ##### 利昂内尔·梅西
 ### [ 利昂内尔·梅西第六次获得金球奖，成为获得金球奖次数最多的球员。 ](/zh/news/2019/12/2/利昂内尔-梅西第六次获得金球奖-成为获得金球奖次数最多的球员.md)
 ##### 

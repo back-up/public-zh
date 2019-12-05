@@ -12,5 +12,3 @@
 ### [ 美国商务部公布数据：2019年前三季度美国贸易逆差为4814亿美元，同比上涨5.4%，其中出口同比减少70亿美元，进口同比增加178亿美元。媒体评论特朗普关税并未起效，没有改变逆差问题。](/zh/news/2019/11/5/美国商务部公布数据-2019年前三季度美国贸易逆差为4814亿美元-同比上涨54-其中出口同比减少70亿美元-进口.md)
 ##### 弗吉尼亚州
 ### [ 2019年美国选举 House of Delegates of Virginia Virginia elections Mississippi gubernatorial election Kentucky gubernatorial election](/zh/news/2019/11/5/2019年美国选举-House-of-Delegates-of-Virginia-Virginia-elections.md)
-## [前一天...](/zh/news/2019/10/21/index.md)
-
