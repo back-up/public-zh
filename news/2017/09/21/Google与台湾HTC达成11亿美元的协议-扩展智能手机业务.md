@@ -20,5 +20,5 @@ The tie-up marks the latest push by Google to boost its hardware business.
 6. [繼Google之後，Mozilla也宣布，即日起不再承認中國互聯網絡信息中心所頒發的電子證書。谷歌Chrome浏览器拥有最多的用户量，达到约50％的份额；微软IE浏览器用户量约达18％；而Mozilla火狐浏览器也达到了16.9％](/zh/news/2015/04/3/繼Google之後-Mozilla也宣布-即日起不再承認中國互聯網絡信息中心所頒發的電子證書-谷歌Chrome浏览器拥有.md) _消息: Google_
 7. [Google宣布，即日起不再承認中國互聯網絡信息中心所頒發的電子證書，意即未來使用chrome浏览器浏览使用其证书的網站，用戶會收到該網站不安全的警告。](/zh/news/2015/04/2/Google宣布-即日起不再承認中國互聯網絡信息中心所頒發的電子證書-意即未來使用chrome浏览器浏览使用其证书的網站.md) _消息: Google_
 8. [ Google宣佈1月20日起停售現行Google眼鏡 ](/zh/news/2015/01/16/Google宣佈1月20日起停售現行Google眼鏡.md) _消息: Google_
-9. [ Google的全新手机操作系统Android5.0正式发布，含64位版](/zh/news/2014/10/13/Google的全新手机操作系统Android50正式发布-含64位版.md) _消息: Google_
+9. [ Google完成收购摩托罗拉移动。](/zh/news/2012/05/22/Google完成收购摩托罗拉移动.md) _消息: Google_
 10. [ 微软正式公布了其下一代智能和手机操作系统Windows Phone 7，并首批推出了10款新品，分别来自HTC、三星、LG和戴尔等手机厂商。](/zh/news/2010/10/11/微软正式公布了其下一代智能和手机操作系统Windows-Phone-7-并首批推出了10款新品-分别来自HTC-三星.md) _消息: HTC_
