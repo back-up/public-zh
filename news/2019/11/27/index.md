@@ -1,5 +1,6 @@
 ## [2019-11-27](/zh/news/2019/11/27/index.md)
 
+### [ 2019年纳米比亚大选 Namibian general election举行。 ](/zh/news/2019/11/27/2019年纳米比亚大选-Namibian-general-election举行.md)
 ##### 美国
 ### [ 美国德克萨斯州内切斯港 Neches, TexasTPC集团化工厂生产丁二烯的区域相隔13小时发生两次爆炸，3人受伤，5万人被疏散。 ](/zh/news/2019/11/27/美国德克萨斯州内切斯港-Neches-TexasTPC集团化工厂生产丁二烯的区域相隔13小时发生两次爆炸-3人受伤.md)
 ##### 也门
