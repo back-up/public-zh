@@ -18,3 +18,5 @@
 ### [2019年羅馬尼亞總統選舉 Romanian presidential election進行投票。 ](/zh/news/2019/11/10/2019年羅馬尼亞總統選舉-Romanian-presidential-election進行投票.md)
 ##### 2019年11月西班牙大選
 ### [2019年11月西班牙大選進行投票。 ](/zh/news/2019/11/10/2019年11月西班牙大選進行投票.md)
+## [前一天...](/zh/news/2019/11/9/index.md)
+
