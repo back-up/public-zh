@@ -8,9 +8,9 @@
 
 ### 有关:
 
-1. [美國國土安全部長克絲珍·尼爾森 Nielsen crime#Fraud and wire fraud、共謀詐欺美國政府 against the United States、洗錢、竊盜商業秘密與技術、利誘雇員在世界各地偷竊機密、妨礙司法 of Justice、違反對伊朗之制裁 against Iran等共23項刑事控罪並正式向加拿大提出引渡申請。 [https:--www.justice.gov-opa-gallery-acting-attorney-general-whitaker-announces-national-security-related-criminal-charges (美國司法部)] [https:--www.justice.gov-opa-pr-chinese-telecommunications-device-manufacturer-and-its-us-affiliate-indicted-theft-trade (美國司法部)] [https:--www.justice.gov-opa-pr-chinese-telecommunications-conglomerate-huawei-and-huawei-cfo-wanzhou-meng-charged-financial (美國司法部)] ](/zh/news/2019/01/28/美國國土安全部長克絲珍-尼爾森-Nielsen-crime-Fraud-and-wire-fraud-共謀詐欺美國政府.md) _消息: 美国司法部_
-2. [英國BP公司與美國司法部及美國南部五個州達成協議，該公司同意為2010年墨西哥灣漏油事故賠償187億美元，分18年支付；該協議仍需得到美國法院批准方可落實。 ](/zh/news/2015/07/2/英國BP公司與美國司法部及美國南部五個州達成協議-該公司同意為2010年墨西哥灣漏油事故賠償187億美元-分18年支付.md) _消息: 美国司法部_
-3. [ 中美两国23日至24日在华盛顿举行人权对话。](/zh/news/2012/07/24/中美两国23日至24日在华盛顿举行人权对话.md) _消息: 华盛顿_
+1. [美國司法部召開記者會，宣佈破獲美國有史以來規模最大的大學入學詐騙和賄賂案。牽涉到影視演員，en Aziz:--cn.nytimes.com-usa-20190313-college-admissions-cheating-scandal-zh-hant- 美國大學招生醜聞：富人把孩子「買」進常春藤] ](/zh/news/2019/03/13/美國司法部召開記者會-宣佈破獲美國有史以來規模最大的大學入學詐騙和賄賂案-牽涉到影視演員-en-Aziz-cnny.md) _消息: 美国司法部_
+2. [美國國土安全部長克絲珍·尼爾森 Nielsen crime#Fraud and wire fraud、共謀詐欺美國政府 against the United States、洗錢、竊盜商業秘密與技術、利誘雇員在世界各地偷竊機密、妨礙司法 of Justice、違反對伊朗之制裁 against Iran等共23項刑事控罪並正式向加拿大提出引渡申請。 [https:--www.justice.gov-opa-gallery-acting-attorney-general-whitaker-announces-national-security-related-criminal-charges (美國司法部)] [https:--www.justice.gov-opa-pr-chinese-telecommunications-device-manufacturer-and-its-us-affiliate-indicted-theft-trade (美國司法部)] [https:--www.justice.gov-opa-pr-chinese-telecommunications-conglomerate-huawei-and-huawei-cfo-wanzhou-meng-charged-financial (美國司法部)] ](/zh/news/2019/01/28/美國國土安全部長克絲珍-尼爾森-Nielsen-crime-Fraud-and-wire-fraud-共謀詐欺美國政府.md) _消息: 美国司法部_
+3. [ 美国司法部宣布对法国巴黎银行处以90亿美元的罚款，以惩罚其违反禁令而与古巴、伊朗和苏丹共和国从事交易。 ](/zh/news/2014/07/1/美国司法部宣布对法国巴黎银行处以90亿美元的罚款-以惩罚其违反禁令而与古巴-伊朗和苏丹共和国从事交易.md) _消息: 美国司法部_
 4. [英国葛兰素史克公司对美国司法部提出的违规营销处方药物等三项指控认罪，并同意支付30亿美元的罚金。](/zh/news/2012/07/2/英国葛兰素史克公司对美国司法部提出的违规营销处方药物等三项指控认罪-并同意支付30亿美元的罚金.md) _消息: 美国司法部_
 5. [ 美國與越南第四輪政治、安全與防務對話在華盛頓舉行。雙方發表共同申明指出，重申加強雙邊關係，並強調南海糾紛需要透過合作的外交方式解決，而非脅迫或用武。](/zh/news/2011/06/17/美國與越南第四輪政治-安全與防務對話在華盛頓舉行-雙方發表共同申明指出-重申加強雙邊關係-並強調南海糾紛需要透過合作的.md) _消息: 华盛顿_
 6. [第三轮中美战略与经济对话在美国首都华盛顿开幕。](/zh/news/2011/05/9/第三轮中美战略与经济对话在美国首都华盛顿开幕.md) _消息: 华盛顿_

@@ -12,4 +12,5 @@
 
 ### 有关:
 
-1. [荷蘭法院批准將錫納羅亞販毒集團領導人El Chino Ántrax Chino Ántrax引渡至美國。](/zh/news/2014/05/28/荷蘭法院批准將錫納羅亞販毒集團領導人El-Chino-Ántrax-Chino-Ántrax引渡至美國.md) _消息: 錫納羅亞販毒集團_
+1. [ 前墨西哥公安部 of Public Security部长赫纳罗·加西亚·卢纳 García Luna在美国得克萨斯州达拉斯被捕。检方指控他收受錫納羅亞販毒集團贿赂，保护贩毒活动。 ](/zh/news/2019/12/9/前墨西哥公安部-of-Public-Security部长赫纳罗-加西亚-卢纳-García-Luna在美国得克萨斯州达.md) _消息: 錫納羅亞販毒集團_
+2. [荷蘭法院批准將錫納羅亞販毒集團領導人El Chino Ántrax Chino Ántrax引渡至美國。](/zh/news/2014/05/28/荷蘭法院批准將錫納羅亞販毒集團領導人El-Chino-Ántrax-Chino-Ántrax引渡至美國.md) _消息: 錫納羅亞販毒集團_
