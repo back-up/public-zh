@@ -4,7 +4,7 @@
 ### [ 一艘油轮在尼日利亚海岸附近被劫持，18名印度船员和1名土耳其船员被绑架。 ](/zh/news/2019/12/3/一艘油轮在尼日利亚海岸附近被劫持-18名印度船员和1名土耳其船员被绑架.md)
 ##### 美国纽约东区联邦地区法院
 ### [ 美国纽约东区联邦地区法院法官安·唐纳利 Donnelly发布法庭命令，詹姆斯·迈克尔·科尔 M. Cole不得为华为公司担任辩护律师。联邦检察官认为，科尔曾经担任美國司法部副部長，存在利益冲突。法官采纳了检察官的意见。 ](/zh/news/2019/12/3/美国纽约东区联邦地区法院法官安-唐纳利-Donnelly发布法庭命令-詹姆斯-迈克尔-科尔-M-Cole不得为华为公.md)
-##### 唐納德·特朗普的彈劾条款
+##### 特朗普弹劾条款
 ### [ 美国众议院情报委员会 States House Permanent Select Committee on Intelligence发布唐納德·特朗普的彈劾調查报告。 ](/zh/news/2019/12/3/美国众议院情报委员会-States-House-Permanent-Select-Committee-on-Intel.md)
 ##### Google
 ### [ Google母公司Alphabet宣布Google联合创始人拉里·佩奇和谢尔盖·布林分别卸任首席执行官和总裁。Google首席执行官桑达·皮采将出任Alphabet首席执行官。 ](/zh/news/2019/12/3/Google母公司Alphabet宣布Google联合创始人拉里-佩奇和谢尔盖-布林分别卸任首席执行官和总裁-Goog.md)
