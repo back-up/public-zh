@@ -1,19 +1,19 @@
-### [2019-11-30](/news/2019/11/30/index.md)
+### [2019-12-1](/news/2019/12/1/index.md)
 
 ##### 美国
-#  由美国南达科塔州张伯伦飞往爱达荷州的一架飞机在起飞后不久坠毁，9人死亡，3人受伤。 
+#  当地时间3时20分，美国路易斯安那州新奥尔良2019年新奥尔良枪击案 New Orleans shooting 
 
 
 
 
 ### 信息来源:
 
-1. [环球网](https://world.huanqiu.com/article/9CaKrnKo5nr)
+1. [联合早报](https://www.zaobao.com.sg/realtime/world/story20191201-1009832) [IMG](https://www.zaobao.com.sg/sites/default/files/styles/og_share_medium/public/images/201912/20191201/5de3aee211a3e.image.jpg?itok=j8vnlDJU)
 
 ### 有关:
 
 1. [ 中华人民共和国外交部宣布，为回应美国《香港人权与民主法案》成法，中国即日起暂停审批美国舰船、飞机赴香港休整的申请，制裁美国国家民主基金会、美国国际事务民主协会、美国国际共和学会 Republican Institute ](/zh/news/2019/12/2/中华人民共和国外交部宣布-为回应美国-香港人权与民主法案-成法-中国即日起暂停审批美国舰船-飞机赴香港休整的申请-制裁.md) _消息: 美国_
-2. [ 美国路易斯安那州举行2019年路易斯安那州州长选举 Louisiana gubernatorial election of governors of Louisiana Bel Edwards击败共和党候选人埃迪‧里斯彭 Rispone。約翰‧貝爾‧愛德華茲是民主党在南方的唯一一位州长。 ](/zh/news/2019/11/16/美国路易斯安那州举行2019年路易斯安那州州长选举-Louisiana-gubernatorial-election.md) _消息: 美国_
+2. [ 美国路易斯安那州举行2019年路易斯安那州州长选举 Louisiana gubernatorial election of governors of Louisiana Bel Edwards击败共和党候选人埃迪‧里斯彭 Rispone。約翰‧貝爾‧愛德華茲是民主党在南方的唯一一位州长。 ](/zh/news/2019/11/16/美国路易斯安那州举行2019年路易斯安那州州长选举-Louisiana-gubernatorial-election.md) _消息: 美国, 路易斯安那州_
 3. [美國聯邦參議院一致通過旨在要求行政部門採取積極行動、支持臺灣國際參與的《臺北法案》](/zh/news/2019/10/30/美國聯邦參議院一致通過旨在要求行政部門採取積極行動-支持臺灣國際參與的-臺北法案.md) _消息: 美国_
 4. [中國國際航空、中國東方航空、中國南方航空聯合向美國波音公司提出波音737 MAX停飛賠償。 ](/zh/news/2019/05/22/中國國際航空-中國東方航空-中國南方航空聯合向美國波音公司提出波音737-MAX停飛賠償.md) _消息: 美国_
 5. [委內瑞拉全國代表大會議長胡安·瓜伊多在游行民众前宣誓成为临时总统，获美国、加拿大、歐盟以及多个拉美国家政府支持 ](/zh/news/2019/01/23/委內瑞拉全國代表大會議長胡安-瓜伊多在游行民众前宣誓成为临时总统-获美国-加拿大-歐盟以及多个拉美国家政府支持.md) _消息: 美国_
