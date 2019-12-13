@@ -1,5 +1,7 @@
 ## [2019-12-10](/zh/news/2019/12/10/index.md)
 
+##### 尼日尔
+### [ 当地时间晚间，尼日尔伊纳特斯 Inates attack [https:--www.bbc.com-news-world-africa-50744649 (BBC)] 伊斯兰国西非省（原名博科圣地）后来宣布对此负责。](/zh/news/2019/12/10/当地时间晚间-尼日尔伊纳特斯-Inates-attack-https-wwwbbccom-news-worl.md)
 ##### 南极洲
 ### [ 智利海军 Navy确认，9日晚间飞往南极洲基地的军用C-130运输机2019年智利空军C-130空难 Chilean Air Force C-130 disappearance ](/zh/news/2019/12/10/智利海军-Navy确认-9日晚间飞往南极洲基地的军用C-130运输机2019年智利空军C-130空难-Chilean.md)
 ##### 美国
