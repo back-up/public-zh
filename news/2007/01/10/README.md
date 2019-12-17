@@ -2,7 +2,7 @@
 
 ##### 印度
 ### [印度成功發射一枚極地衛星運載火箭，將太空艙和三顆衛星送上太空。[https:--web.archive.org-web-20070112063438-http:--hk.news.yahoo.com-070110-60-1zpcu.html 星島日報][http:--www.whrb.info-news-content.aspx?id=37944 新华社]date=十一月 2017 ](/zh/news/2007/01/10/印度成功發射一枚極地衛星運載火箭-將太空艙和三顆衛星送上太空-https-webarchiveorg-web.md)
-##### 菲律宾
+##### 菲律賓
 ### [菲律賓哥打巴托發生爆炸，造成六人死亡，廿六人受傷，當地警方疑是針對東盟會議的恐怖襲擊。[https:--web.archive.org-web-20070120201331-http:--hk.news.yahoo.com-070110-12-1zpib.html 明報][http:--www.gx.chinanews.com.cn-2007-show.asp?id=27374 中新网]date=十一月 2017 ](/zh/news/2007/01/10/菲律賓哥打巴托發生爆炸-造成六人死亡-廿六人受傷-當地警方疑是針對東盟會議的恐怖襲擊-https-webarch.md)
 ##### 南韓
 ### [九名南韓大宇工程公司工人和一名當地人，在奈及利亞南部被武裝分子綁架。](/zh/news/2007/01/10/九名南韓大宇工程公司工人和一名當地人-在奈及利亞南部被武裝分子綁架.md)
