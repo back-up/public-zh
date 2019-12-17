@@ -1,15 +1,14 @@
-### [2019-12-15](/news/2019/12/15/index.md)
+### [2019-12-13](/news/2019/12/13/index.md)
 
 ##### 美国
-#  美国媒体援引知情人消息，美国于2019年秋天驱逐了两名中華人民共和国驻美国大使馆外交官，原因是两人在9月份携各自妻子驾车未经许可进入弗吉尼亚州一处军事基地。两名外交官被截停后，声称误解了管理人员的英文指令，误入基地。据称，其中一人是中国情报人员，以外交官身份作为掩护。 
+#  美国路易斯安那州新奥尔良遭遇网络袭击，新奥尔良市长列表 of mayors of New Orleans Cantrell宣布新奥尔良进入紧急状态。 
 
 
 
 
 ### 信息来源:
 
-1. [Deutsche](https://www.dw.com/zh/%E6%93%85%E9%97%AF%E5%86%9B%E4%BA%8B%E5%9F%BA%E5%9C%B0-%E4%B8%AD%E5%A4%96%E4%BA%A4%E4%BA%BA%E5%91%98%E9%81%AD%E7%BE%8E%E7%A7%98%E5%AF%86%E9%A9%B1%E9%80%90/a-51686570) [IMG](https://www.dw.com/image/51328418_304.jpg)
-2. [纽约时报](https://cn.nytimes.com/usa/20191216/us-china-spies/) [IMG](https://static01.nyt.com/images/2019/12/15/us/politics/15dc-chinaspies/merlin_165956424_775a6e71-50b5-45b1-9b81-61c1f8502146-articleLarge.jpg)
+1. [环球网](https://world.huanqiu.com/article/9CaKrnKokli)
 
 ### 有关:
 
