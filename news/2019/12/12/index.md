@@ -16,7 +16,7 @@
 ### [ 遠東航空宣布於12月13日起停航。 ](/zh/news/2019/12/12/遠東航空宣布於12月13日起停航.md)
 ##### 
 ### [ 2019年阿尔及利亚总统选举 Algerian presidential election进行投票。 ](/zh/news/2019/12/12/2019年阿尔及利亚总统选举-Algerian-presidential-election进行投票.md)
-##### 对总统特朗普的弹劾条款
+##### 对总统唐纳德·特朗普的两项弹劾条款
 ### [ 美国众议院司法委员会 States House Committee on the Judiciary主席杰里·纳德勒 Nadler突然宣布将特朗普弹劾条款投票推迟至周五。纳德勒没有解释理由。同日的辩论中，共和党提出的多项修正案均因人数劣势被否决。 ](/zh/news/2019/12/12/美国众议院司法委员会-States-House-Committee-on-the-Judiciary主席杰里-纳德勒.md)
 ##### 美国总统
 ### [ 当地时间早间，美国总统唐纳德·特朗普在推特上宣布，“同中国的大协议近在咫尺。他们想要，我们也想！”（en VERY close to a BIG DEAL with China. They want it, and so do we!）。美国股市、离岸人民币汇率应声上涨，中国股市也在翌日高开。 ](/zh/news/2019/12/12/当地时间早间-美国总统唐纳德-特朗普在推特上宣布-同中国的大协议近在咫尺-他们想要-我们也想-en-VERY-c.md)
