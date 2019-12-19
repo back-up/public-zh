@@ -9,7 +9,7 @@
 ### 信息来源:
 
 1. [Universe Today](http://www.universetoday.com/2008/07/14/newest-dwarf-planet-and-plutoid-makemake/)
-2. [网易](http://discover.news.163.com/08/0716/09/4GVBDDA9000125LI.html)
+2. [网易](https://web.archive.org/web/20110204050541/http://discover.news.163.com/08/0716/09/4GVBDDA9000125LI.html)
 
 ### 有关:
 
