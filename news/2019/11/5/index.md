@@ -10,7 +10,7 @@
 ### [ 毒贩集团的枪手在墨西哥索諾拉州的公路上2019年索诺拉惨案 Sonora massacre Durazo称枪手们可能误认为这些汽车来自敌对帮派。据称，受害者们大多拥有美国、墨西哥双重国籍，来自摩门教勒巴伦家族 of the Firstborn (LeBaron order)。 ](/zh/news/2019/11/5/毒贩集团的枪手在墨西哥索諾拉州的公路上2019年索诺拉惨案-Sonora-massacre-Durazo称枪手们可能误.md)
 ##### 美国商务部
 ### [ 美国商务部公布数据：2019年前三季度美国贸易逆差为4814亿美元，同比上涨5.4%，其中出口同比减少70亿美元，进口同比增加178亿美元。媒体评论特朗普关税并未起效，没有改变逆差问题。](/zh/news/2019/11/5/美国商务部公布数据-2019年前三季度美国贸易逆差为4814亿美元-同比上涨54-其中出口同比减少70亿美元-进口.md)
-##### 弗吉尼亚州
+##### 弗吉尼亞州
 ### [ 2019年美国选举 House of Delegates of Virginia Virginia elections Mississippi gubernatorial election Kentucky gubernatorial election](/zh/news/2019/11/5/2019年美国选举-House-of-Delegates-of-Virginia-Virginia-elections.md)
 ## [前一天...](/zh/news/2019/11/4/index.md)
 

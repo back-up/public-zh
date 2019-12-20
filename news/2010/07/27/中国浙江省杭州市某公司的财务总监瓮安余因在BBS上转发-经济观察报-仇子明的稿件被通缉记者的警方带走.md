@@ -8,7 +8,7 @@
 
 ### 信息来源:
 
-1. [新京报](http://news.163.com/10/0729/03/6CNS0I5M0001124J.html)
+1. [新京报](https://web.archive.org/web/20100731162715/http://news.163.com/10/0729/03/6CNS0I5M0001124J.html)
 
 ### 有关:
 
