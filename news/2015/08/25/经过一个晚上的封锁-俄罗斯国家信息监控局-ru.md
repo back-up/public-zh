@@ -1,6 +1,6 @@
 ### [2015-08-25](/news/2015/08/25/index.md)
 
-##### 
+##### 俄语维基百科
 #  经过一个晚上的封锁，俄罗斯国家信息监控局（ru 
 
 Russia's media watchdog said Tuesday it had lifted a short-lived ban on Russian-language Wikipedia over an entry on a form of cannabis. Roskomnadzor said Wikipedia had complied with a court order and edited an entry about charas, a substance made from the resin of the cannabis plant. "The

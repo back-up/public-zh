@@ -1,6 +1,6 @@
 ### [2015-11-24](/news/2015/11/24/index.md)
 
-##### 
+##### NASA
 #  NASA噴射推進實驗室的科學家蓋瑞·普里茲奧以ΛCDM模型模擬銀河系內暗物質流過地球等行星，發現暗物質流的密度明顯上升並呈現毛髮狀的輻射分佈結構 
 
 Dense filaments of dark matter particles, called "hairs," are sprouting from Earth, according to a new study based on computer simulations.
@@ -9,3 +9,16 @@ Dense filaments of dark matter particles, called "hairs," are sprouting from Ear
 ### 信息来源:
 
 1. [NASA's](https://www.nasa.gov/feature/jpl/earth-might-have-hairy-dark-matter) [IMG](http://www.nasa.gov/sites/default/files/thumbnails/image/pia20176_main.jpg)
+
+### 有关:
+
+1. [為響應美國國家航空暨太空總署（NASA）於未來十年內，重新恢復探索月球、火星之計畫，洛克希德馬丁公司（Lockheed Martin）同日公布一艘登月概念太空船。](/zh/news/2018/10/3/為響應美國國家航空暨太空總署-NASA-於未來十年內-重新恢復探索月球-火星之計畫-洛克希德馬丁公司-Lockheed.md) _消息: NASA_
+2. [耶魯大學天文學者彼得·范道肯 Van Dokkum研究團隊發現，超稀疏星系NGC 1052-DF2與眾不同地缺乏暗物質](/zh/news/2018/03/28/耶魯大學天文學者彼得-范道肯-Van-Dokkum研究團隊發現-超稀疏星系NGC-1052-DF2與眾不同地缺乏暗物質.md) _消息: 暗物質_
+3. [NASA宣布:他们已经接受到2015年7月新视野号探测器穿越冥王星所收集的最后一块数据。这一数据以光速穿越3.4万亿英里（5.5万亿公里），于10月25日早上抵达約翰·霍普金斯大學應用物理實驗室。 ](/zh/news/2016/10/27/NASA宣布-他们已经接受到2015年7月新视野号探测器穿越冥王星所收集的最后一块数据-这一数据以光速穿越34万亿英里.md) _消息: NASA_
+4. [NASA公布中國中科院国家天文台陆由俊等人的研究团队，使用哈伯太空望遠鏡發現Markarian 231星系中的雙黑洞系統 ](/zh/news/2015/08/27/NASA公布中國中科院国家天文台陆由俊等人的研究团队-使用哈伯太空望遠鏡發現Markarian-231星系中的雙黑洞系統.md) _消息: NASA_
+5. [ 美國國家航空暨太空總署噴射推進實驗室宣佈由火星偵察軌道器拍攝的影像中找到失蹤的小獵犬2號太空飛行器。照片中顯示小獵犬2號成功著陸但太陽能板未全部展開，因通信天線在太陽能板下面，故歐洲太空總署無法和小獵犬2號建立通訊 ](/zh/news/2015/01/16/美國國家航空暨太空總署噴射推進實驗室宣佈由火星偵察軌道器拍攝的影像中找到失蹤的小獵犬2號太空飛行器-照片中顯示小獵犬2.md) _消息: 噴射推進實驗室_
+6. [美國國家航空暨太空總署宣布，裝置於國際太空站的阿爾法磁譜儀已發現暗物質的可能跡象。](/zh/news/2013/04/2/美國國家航空暨太空總署宣布-裝置於國際太空站的阿爾法磁譜儀已發現暗物質的可能跡象.md) _消息: 暗物質_
+7. [ 哈佛－史密松天體物理中心科學家估計，在銀河系內，類似地球尺寸大小的行星最少有170億顆。](/zh/news/2013/01/4/哈佛-史密松天體物理中心科學家估計-在銀河系內-類似地球尺寸大小的行星最少有170億顆.md) _消息: 銀河系_
+8. [ 美國國家航空暨太空總署（NASA）的火星探測車「好奇號」（Curiosity）今在太空環境裡體現了「後PC革命」真諦，透過社交應用程式（Foursquare），在火星上「打卡」（check-in）。](/zh/news/2012/10/3/美國國家航空暨太空總署-NASA-的火星探測車-好奇號-Curiosity-今在太空環境裡體現了-後PC革命-真諦.md) _消息: NASA_
+9. [ NASA進行哈勃望遠鏡最後一次維護工程。由亞特蘭提斯號執行任務。](/zh/news/2009/05/12/NASA進行哈勃望遠鏡最後一次維護工程-由亞特蘭提斯號執行任務.md) _消息: NASA_
+10. [ 惠更斯号登陆土卫六。欧洲空间局和NASA已经发布一部分拍摄的照片。[http:--news.sina.com.cn-w-2005-01-14-23534836669s.shtml sina] [http:--www.dragontv.cn-detail.php?InfoID=31188&Title=%BB%DD%B8%FC%CB%B9%A1%B1%B5%C7%C2%BD%CD%C1%CE%C0%C1%F9%A3%BA%C8%FD%D6%D6%C3%FC%D4%CB 东方卫视]date=十一月 2017 ](/zh/news/2005/01/14/惠更斯号登陆土卫六-欧洲空间局和NASA已经发布一部分拍摄的照片-http-newssinacomcn-w.md) _消息: NASA_

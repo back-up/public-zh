@@ -1,6 +1,6 @@
 ### [2017-02-1](/news/2017/02/1/index.md)
 
-##### 
+##### 伊朗国防及三军后勤部
 # 伊朗国防及三军后勤部部长侯赛因·德吉汗 Dehghan证实伊朗试射新导弹，表示试验不违反聯合全面行動計畫和联合国安全理事会第2231号决议 
 
 Azerbaijan's security forces killed four members of a group that had been p...
@@ -9,3 +9,9 @@ Azerbaijan's security forces killed four members of a group that had been p...
 ### 信息来源:
 
 1. [Reuters](http://www.reuters.com/article/us-azerbaijan-security-idUSKBN15G40H?il=0) [IMG](https://s4.reutersmedia.net/resources_v2/images/rcom-default.png)
+
+### 有关:
+
+1. [美國總統唐納·川普宣佈美國將會退出聯合全面行動計劃，並將重啟先前撤銷的針對伊朗的經濟制裁。 ](/zh/news/2018/05/8/美國總統唐納-川普宣佈美國將會退出聯合全面行動計劃-並將重啟先前撤銷的針對伊朗的經濟制裁.md) _消息: 聯合全面行動計劃_
+2. [美國總統唐納德·川普宣佈他將不再確認伊朗有否遵守2015年《聯合全面行動計劃》的條款，美国国会有60天的時間考慮是否向伊朗重新實施已解除的制裁 ](/zh/news/2017/10/13/美國總統唐納德-川普宣佈他將不再確認伊朗有否遵守2015年-聯合全面行動計劃-的條款-美国国会有60天的時間考慮是否向伊.md) _消息: 聯合全面行動計劃_
+3. [伊朗核問題：國際原子能總署報告確認伊朗完成制定聯合全面行動計畫所需步驟，國際間解除對伊朗相關制裁](/zh/news/2016/01/16/伊朗核問題-國際原子能總署報告確認伊朗完成制定聯合全面行動計畫所需步驟-國際間解除對伊朗相關制裁.md) _消息: 聯合全面行動計劃_

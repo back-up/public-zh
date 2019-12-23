@@ -1,6 +1,6 @@
 ### [2014-05-24](/news/2014/05/24/index.md)
 
-##### 
+##### 泰國眾議院
 # 繼22日宣布中止《泰王國2007年憲法 Constitution of Thailand》並解散泰國眾議院後，泰國軍方今日再宣布解散泰國參議院 of Thailand，接收所有立法權，意即泰國已無民主制度。 
 
 Military says it is assuming all political power, a day after arresting former prime minister Yingluck Shinawatra.

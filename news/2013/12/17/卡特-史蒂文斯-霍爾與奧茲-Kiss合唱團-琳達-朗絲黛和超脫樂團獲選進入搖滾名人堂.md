@@ -1,6 +1,6 @@
 ### [2013-12-17](/news/2013/12/17/index.md)
 
-##### 
+##### 卡特·史蒂文斯
 #  卡特·史蒂文斯、霍爾與奧茲、Kiss合唱團、琳達·朗絲黛和超脫樂團獲選進入搖滾名人堂 
 
 Grunge and glam rock are among the genres that got the nod from the Rock and Roll Hall of Fame as it announced its inductees for 2014.

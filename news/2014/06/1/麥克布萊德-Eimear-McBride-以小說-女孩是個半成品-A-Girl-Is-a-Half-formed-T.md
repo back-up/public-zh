@@ -1,6 +1,6 @@
 ### [2014-06-1](/news/2014/06/1/index.md)
 
-##### 
+##### Eimear McBride
 #  麥克布萊德（Eimear McBride）以小說《女孩是個半成品》（A Girl Is a Half-formed Thing）擊敗唐娜·塔特（Donna Tartt）的《金翅雀》（The Goldfinch），獲得2014年女性小說獎。 
 
 A Girl is a Half-formed Thing by Irish writer beats Donna Tartt's 771-page opus The Goldfinch to take award• A novel uncompromising in style and subject matter

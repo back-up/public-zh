@@ -1,6 +1,6 @@
 ### [2017-04-10](/news/2017/04/10/index.md)
 
-##### 
+##### 大堡礁
 # en Research Council 
 
 Two-thirds of the Great Barrier Reef is now devastated by severe coral bleaching, Queensland scientists say.

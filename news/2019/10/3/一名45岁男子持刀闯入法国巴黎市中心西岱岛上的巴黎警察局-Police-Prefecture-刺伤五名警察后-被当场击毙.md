@@ -1,6 +1,6 @@
 ### [2019-10-3](/news/2019/10/3/index.md)
 
-##### 
+##### 西岱岛
 # 一名45岁男子持刀闯入法国巴黎市中心西岱岛上的巴黎警察局 Police Prefecture，刺伤五名警察后，被当场击毙 
 
 'The police were in panic, running everywhere,' one witness says

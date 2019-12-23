@@ -1,6 +1,6 @@
 ### [2017-11-20](/news/2017/11/20/index.md)
 
-##### 
+##### 特朗普
 # 美國總統唐納德·川普宣佈將-{zh-cn:朝鲜;zh-hk:北韓;zh-tw:北韓;}-重新列為支持恐怖主义的国家 
 
 The United States is returning North Korea to its list of states sponsoring terrorism after a 10-year absence, a move that will put additional financial and diplomatic pressure on the Pyongyang government."It should have happened years ago," President Donald Trump said Monday from the White House, calling North Korea a "murderous regime."The U.S. Treasury Department will officially announce the designation and further sanctions on Pyongyang on Tuesday, Trump said.
@@ -9,3 +9,16 @@ The United States is returning North Korea to its list of states sponsoring terr
 ### 信息来源:
 
 1. [VOA](https://www.voanews.com/a/us-redesignating-north-korea-as-state-sponsor-of-terrorism/4126754.html) [IMG](https://media.voltron.voanews.com/Drupal/01live-166/2019-04/AF763783-80A1-4DE7-80C8-E336F252E2D5.jpg)
+
+### 有关:
+
+1. [美國總統特朗普發佈推特，出言羞辱民主黨四名新生代少數族裔女性眾議員，要求她們「回去」治理她們來自的地方。四名議員發聲回擊，表示會繼續與特朗普的邊境政策做鬥爭，並會尋求對特朗普的白人至上種族主義言論起訴 ](/zh/news/2019/07/14/美國總統特朗普發佈推特-出言羞辱民主黨四名新生代少數族裔女性眾議員-要求她們-回去-治理她們來自的地方-四名議員發聲回擊.md) _消息: 特朗普_
+2. [韩国情报部门人士指出，朝鲜开始试验在洲际弹道导弹上装载炭疽菌，包括测试炭疽菌能在导弹重返大气层所产生的高温底下存活。 ](/zh/news/2017/12/20/韩国情报部门人士指出-朝鲜开始试验在洲际弹道导弹上装载炭疽菌-包括测试炭疽菌能在导弹重返大气层所产生的高温底下存活.md) _消息: 朝鮮民主主義人民共和國_
+3. [美國總統唐納德·川普宣佈他將不再確認伊朗有否遵守2015年《聯合全面行動計劃》的條款，美国国会有60天的時間考慮是否向伊朗重新實施已解除的制裁 ](/zh/news/2017/10/13/美國總統唐納德-川普宣佈他將不再確認伊朗有否遵守2015年-聯合全面行動計劃-的條款-美国国会有60天的時間考慮是否向伊.md) _消息: 特朗普_
+4. [朝鲜民主主义人民共和国咸镜北道吉州郡豐溪里核試驗場附近发生疑似核试验引发的地震。 ](/zh/news/2017/09/3/朝鲜民主主义人民共和国咸镜北道吉州郡豐溪里核試驗場附近发生疑似核试验引发的地震.md) _消息: 朝鮮民主主義人民共和國_
+5. [朝鮮民主主義人民共和國對外宣佈成功試射火星-14型洲際彈道飛彈。 ](/zh/news/2017/07/4/朝鮮民主主義人民共和國對外宣佈成功試射火星-14型洲際彈道飛彈.md) _消息: 朝鮮民主主義人民共和國_
+6. [被朝鮮囚禁17個月期間陷入昏迷的美國大學生奥托·瓦姆比尔獲釋回國後，因腦部嚴重受損去世 ](/zh/news/2017/06/19/被朝鮮囚禁17個月期間陷入昏迷的美國大學生奥托-瓦姆比尔獲釋回國後-因腦部嚴重受損去世.md) _消息: 朝鮮民主主義人民共和國_
+7. [美國威斯康辛州完成對2016年美國總統選舉的重新點票，結果是特朗普與對手希拉里·克林顿的得票差距增加131票，對兩位主要參選人所得的選舉人票數目無影響。 ](/zh/news/2016/12/12/美國威斯康辛州完成對2016年美國總統選舉的重新點票-結果是特朗普與對手希拉里-克林顿的得票差距增加131票-對兩位主要.md) _消息: 特朗普_
+8. [2016年美国总统选举结果正式出炉，共和党候选人唐納德·川普击败民主党候选人希拉里·克林顿，意外當選美國第45任總統。 ](/zh/news/2016/11/9/2016年美国总统选举结果正式出炉-共和党候选人唐納德-川普击败民主党候选人希拉里-克林顿-意外當選美國第45任總統.md) _消息: 特朗普_
+9. [ 身份不明的朝鲜人对释放其所关押的29名中国船员索要赎金。](/zh/news/2012/05/17/身份不明的朝鲜人对释放其所关押的29名中国船员索要赎金.md) _消息: 朝鮮民主主義人民共和國_
+10. [美國紐約愛樂樂團在-{zh-hans:朝鲜; zh-hant:北韓;}-首都平壤的東平壤大劇院举行演出，成为首个在-{zh-hans:朝鲜; zh-hant:北韓;}-演出的美国交响乐团。](/zh/news/2008/02/26/美國紐約愛樂樂團在-zh-hans-朝鲜-zh-hant-北韓-首都平壤的東平壤大劇院举行演出-成为首个在-z.md) _消息: 朝鮮民主主義人民共和國_

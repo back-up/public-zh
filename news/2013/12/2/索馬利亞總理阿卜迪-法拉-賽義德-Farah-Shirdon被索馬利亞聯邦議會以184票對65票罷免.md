@@ -1,6 +1,6 @@
 ### [2013-12-2](/news/2013/12/2/index.md)
 
-##### 
+##### 索馬利亞總理
 #  索馬利亞總理阿卜迪·法拉·賽義德 Farah Shirdon被索馬利亞聯邦議會以184票對65票罷免 
 
 Somalia's PM loses a vote of confidence in parliament after 13 months in office, in what is seen as a blow to efforts to stabilise the country.
