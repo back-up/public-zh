@@ -1,6 +1,6 @@
 ### [2013-12-21](/news/2013/12/21/index.md)
 
-##### NASA
+##### 
 #  兩位NASA美國籍太空員自國際太空站進行太空漫步，以完成替換故障的冷卻設備任務 
 
 Two astronauts ventured outside the station Saturday for the first in a series of spacewalks to replace a degraded ammonia pump module.
@@ -9,16 +9,3 @@ Two astronauts ventured outside the station Saturday for the first in a series o
 ### 信息来源:
 
 1. [NASA](http://www.nasa.gov/content/spacewalkers-remove-degraded-ammonia-pump/index.html) [IMG](http://www.nasa.gov/sites/default/files/2013-12-21_10h37m57s_0.jpg)
-
-### 有关:
-
-1. [為響應美國國家航空暨太空總署（NASA）於未來十年內，重新恢復探索月球、火星之計畫，洛克希德馬丁公司（Lockheed Martin）同日公布一艘登月概念太空船。](/zh/news/2018/10/3/為響應美國國家航空暨太空總署-NASA-於未來十年內-重新恢復探索月球-火星之計畫-洛克希德馬丁公司-Lockheed.md) _消息: NASA_
-2. [NASA宣布:他们已经接受到2015年7月新视野号探测器穿越冥王星所收集的最后一块数据。这一数据以光速穿越3.4万亿英里（5.5万亿公里），于10月25日早上抵达約翰·霍普金斯大學應用物理實驗室。 ](/zh/news/2016/10/27/NASA宣布-他们已经接受到2015年7月新视野号探测器穿越冥王星所收集的最后一块数据-这一数据以光速穿越34万亿英里.md) _消息: NASA_
-3. [ NASA噴射推進實驗室的科學家蓋瑞·普里茲奧以ΛCDM模型模擬銀河系內暗物質流過地球等行星，發現暗物質流的密度明顯上升並呈現毛髮狀的輻射分佈結構 ](/zh/news/2015/11/24/NASA噴射推進實驗室的科學家蓋瑞-普里茲奧以ΛCDM模型模擬銀河系內暗物質流過地球等行星-發現暗物質流的密度明顯上升.md) _消息: NASA_
-4. [NASA公布中國中科院国家天文台陆由俊等人的研究团队，使用哈伯太空望遠鏡發現Markarian 231星系中的雙黑洞系統 ](/zh/news/2015/08/27/NASA公布中國中科院国家天文台陆由俊等人的研究团队-使用哈伯太空望遠鏡發現Markarian-231星系中的雙黑洞系統.md) _消息: NASA_
-5. [美國國家航空暨太空總署宣布，裝置於國際太空站的阿爾法磁譜儀已發現暗物質的可能跡象。](/zh/news/2013/04/2/美國國家航空暨太空總署宣布-裝置於國際太空站的阿爾法磁譜儀已發現暗物質的可能跡象.md) _消息: 國際太空站_
-6. [ 美國國家航空暨太空總署（NASA）的火星探測車「好奇號」（Curiosity）今在太空環境裡體現了「後PC革命」真諦，透過社交應用程式（Foursquare），在火星上「打卡」（check-in）。](/zh/news/2012/10/3/美國國家航空暨太空總署-NASA-的火星探測車-好奇號-Curiosity-今在太空環境裡體現了-後PC革命-真諦.md) _消息: NASA_
-7. [ 美國太空探索技术公司研发的龙号飞船在佛羅里達州卡纳维拉尔角空军基地由獵鷹9號運載火箭搭载升空，将前往國際太空站。 ](/zh/news/2012/05/22/美國太空探索技术公司研发的龙号飞船在佛羅里達州卡纳维拉尔角空军基地由獵鷹9號運載火箭搭载升空-将前往國際太空站.md) _消息: 國際太空站_
-8. [ 美國東部時間凌晨2時28分，亞特蘭提斯號離開國際太空站，結束12年太空站興建與維修計畫，預計21日返回地球。至此美國發展40載之太空梭計劃將劃下句點。 ](/zh/news/2011/07/19/美國東部時間凌晨2時28分-亞特蘭提斯號離開國際太空站-結束12年太空站興建與維修計畫-預計21日返回地球-至此美國發.md) _消息: 國際太空站_
-9. [ NASA進行哈勃望遠鏡最後一次維護工程。由亞特蘭提斯號執行任務。](/zh/news/2009/05/12/NASA進行哈勃望遠鏡最後一次維護工程-由亞特蘭提斯號執行任務.md) _消息: NASA_
-10. [ 惠更斯号登陆土卫六。欧洲空间局和NASA已经发布一部分拍摄的照片。[http:--news.sina.com.cn-w-2005-01-14-23534836669s.shtml sina] [http:--www.dragontv.cn-detail.php?InfoID=31188&Title=%BB%DD%B8%FC%CB%B9%A1%B1%B5%C7%C2%BD%CD%C1%CE%C0%C1%F9%A3%BA%C8%FD%D6%D6%C3%FC%D4%CB 东方卫视]date=十一月 2017 ](/zh/news/2005/01/14/惠更斯号登陆土卫六-欧洲空间局和NASA已经发布一部分拍摄的照片-http-newssinacomcn-w.md) _消息: NASA_

@@ -1,6 +1,6 @@
 ### [2017-02-16](/news/2017/02/16/index.md)
 
-##### 海得拉巴
+##### 
 # 在巴基斯坦信德省en Sharif 
 
 Scores of people injured in the explosion; armed forces facilitating civil officials at site of attack.

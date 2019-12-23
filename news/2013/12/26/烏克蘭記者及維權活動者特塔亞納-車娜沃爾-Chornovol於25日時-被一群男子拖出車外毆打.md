@@ -1,6 +1,6 @@
 ### [2013-12-26](/news/2013/12/26/index.md)
 
-##### 乌克兰
+##### 
 #  烏克蘭記者及維權活動者特塔亞納·車娜沃爾 Chornovol於25日時，被一群男子拖出車外毆打 
 
 A prominent Ukrainian civic activist and journalist was beaten on Christmas Day in the latest attack on government opponents, authorities said.
@@ -9,16 +9,3 @@ A prominent Ukrainian civic activist and journalist was beaten on Christmas Day 
 ### 信息来源:
 
 1. [CNN](http://edition.cnn.com/2013/12/25/world/europe/ukrainian-journalist-beaten/index.html?hpt=wo_c2) [IMG](https://cdn.cnn.com/cnnnext/dam/assets/131226174512-tsr-live-dougherty-journalist-beaten-in-ukraine-00012424-story-top.jpg)
-
-### 有关:
-
-1. [佛拉迪米爾·澤倫斯基就任烏克蘭總統。 ](/zh/news/2019/05/20/佛拉迪米爾-澤倫斯基就任烏克蘭總統.md) _消息: 乌克兰_
-2. [2015年聯合國安理會選舉 Nations Security Council election, 2015結束，日本、乌克兰、埃及、塞内加尔和乌拉圭當選非常任理事国](/zh/news/2015/10/15/2015年聯合國安理會選舉-Nations-Security-Council-election-2015結束-日本-乌.md) _消息: 乌克兰_
-3. [ 载有283名乘客和15名机组的马来西亚航空17号班机於乌克兰边境遭击落。 俄羅斯媒體報道，機上乘客和機組人員全部罹難。 [http:--www.channelnewsasia.com-news-asiapacific-malaysian-airliner-1269758.html (url=https:--web.archive.org-web-20140719232729-http:--www.channelnewsasia.com-news-asiapacific-malaysian-airliner-1269758.html )] 有烏克蘭親俄武裝分子報道指，客機可能被武裝分子錯誤擊落。 [http:--www.channelnewsasia.com-news-asiapacific-rebel-site-suggests-1269876.html (url=https:--web.archive.org-web-20140719232740-http:--www.channelnewsasia.com-news-asiapacific-rebel-site-suggests-1269876.html )] 俄羅斯總統普京譴責烏克蘭當局，聲稱烏國要為空難負責。 [http:--www3.nhk.or.jp-nhkworld-english-news-20140718_17.html (url=https:--web.archive.org-web-20140724224346-http:--www3.nhk.or.jp-nhkworld-english-news-20140718_17.html )] 烏克蘭總統彼得·波羅申科形容是次空難為「恐怖攻擊」。同時，有多家航空公司宣布其客機將會避免飛越烏克蘭東部。 美國聯邦航空總署宣布，美國多家航空公司已經自發性同意，使用不越過烏克蘭接壤俄羅斯邊境的航線。 载有283名乘客和15名机组的马来西亚航空17号班机於乌克兰边境遭击落。](/zh/news/2014/07/17/载有283名乘客和15名机组的马来西亚航空17号班机於乌克兰边境遭击落-俄羅斯媒體報道-機上乘客和機組人員全部罹難.md) _消息: 乌克兰_
-4. [ 烏克蘭的卢甘斯克州與頓涅茨克州今日宣告獨立，頓涅茨克州同時要求加入俄羅斯。](/zh/news/2014/05/13/烏克蘭的卢甘斯克州與頓涅茨克州今日宣告獨立-頓涅茨克州同時要求加入俄羅斯.md) _消息: 乌克兰_
-5. [烏克蘭武裝力量拒絕捲入國內政治衝突，反對派控制首都基輔，總統亞努科維奇前往東部城市哈爾科夫，他否認會辭職和離開國家，國會認為亞努科維奇無法履行憲法上的義務，大比數通過罷免總統，將大選日期進一步提前在5月25日舉行，並封鎖邊境防止他潛逃。與此同時，前總理季莫申科監禁2年後獲釋，前往基輔匯合示威者，聲言參選總統，定必使烏克蘭加入歐盟](/zh/news/2014/02/22/烏克蘭武裝力量拒絕捲入國內政治衝突-反對派控制首都基輔-總統亞努科維奇前往東部城市哈爾科夫-他否認會辭職和離開國家-國會.md) _消息: 乌克兰_
-6. [应亚努科维奇邀请，胡锦涛18日至20日对乌克兰进行国事访问，两国元首签署《中乌关于建立和发展战略伙伴关系的联合声明》。](/zh/news/2011/06/20/应亚努科维奇邀请-胡锦涛18日至20日对乌克兰进行国事访问-两国元首签署-中乌关于建立和发展战略伙伴关系的联合声明.md) _消息: 乌克兰_
-7. [在俄罗斯、乌克兰与欧盟三方代表签署了天然气过境传输监测协议之后，俄罗斯天然气工业股份公司恢复过境乌克兰向欧洲输送天然气。](/zh/news/2009/01/13/在俄罗斯-乌克兰与欧盟三方代表签署了天然气过境传输监测协议之后-俄罗斯天然气工业股份公司恢复过境乌克兰向欧洲输送天然气.md) _消息: 乌克兰_
-8. [乌克兰总统下令军队进入总动员，保卫行政机构。[http:--news.tom.com-2007-05-26-0021-10737463.html Tom]date=十一月 2017 ](/zh/news/2007/05/26/乌克兰总统下令军队进入总动员-保卫行政机构-http-newstomcom-2007-05-26-0021-1.md) _消息: 乌克兰_
-9. [俄羅斯國營天然氣產業公司（Gazprom）指控烏克蘭竊取價值二千五百萬美元的天然氣，基輔當局則反控莫斯科企圖顛覆烏克蘭的經濟。](/zh/news/2006/01/2/俄羅斯國營天然氣產業公司-Gazprom-指控烏克蘭竊取價值二千五百萬美元的天然氣-基輔當局則反控莫斯科企圖顛覆烏克蘭的.md) _消息: 乌克兰_
-10. [ 乌克兰新任总统尤先科出访俄罗斯。](/zh/news/2005/01/24/乌克兰新任总统尤先科出访俄罗斯.md) _消息: 乌克兰_

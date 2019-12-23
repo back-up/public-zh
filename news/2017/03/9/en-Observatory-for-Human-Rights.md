@@ -1,6 +1,6 @@
 ### [2017-03-9](/news/2017/03/9/index.md)
 
-##### 敘利亞
+##### 
 # en Observatory for Human Rights 
 
 Fighter jets believed to belong to the US-led coalition killed dozens in air raids on ISIL-held village, monitor says.
@@ -9,16 +9,3 @@ Fighter jets believed to belong to the US-led coalition killed dozens in air rai
 ### 信息来源:
 
 1. [半岛电视台](http://www.aljazeera.com/news/2017/03/suspected-coalition-raids-kill-23-civilians-syria-170309105716636.html) [IMG](https://www.aljazeera.com/mritems/Images/2017/3/9/a971ddb1a774462f92214e00a3cca337_18.jpg)
-
-### 有关:
-
-1. [俄羅斯一架安托諾夫An-26運輸機在叙利亚赫梅明空军基地降落時墜毀，機上39人無人生還 ](/zh/news/2018/03/6/俄羅斯一架安托諾夫An-26運輸機在叙利亚赫梅明空军基地降落時墜毀-機上39人無人生還.md) _消息: 敘利亞_
-2. [伊斯兰国在敘利亞政府控制區的三個城市及庫爾德人控制的哈塞克市發動炸彈襲擊，至少40人喪生。 ](/zh/news/2016/09/5/伊斯兰国在敘利亞政府控制區的三個城市及庫爾德人控制的哈塞克市發動炸彈襲擊-至少40人喪生.md) _消息: 敘利亞_
-3. [ 敘利亞政府軍使用桶裝炸彈空襲阿勒頗，造成至少56人死亡 ](/zh/news/2013/12/22/敘利亞政府軍使用桶裝炸彈空襲阿勒頗-造成至少56人死亡.md) _消息: 敘利亞_
-4. [ 敘利亞反對派透過卡車自殺炸彈攻擊阿勒頗內的艾肯迪（Al-Kindi）醫院 ，趁勢奪回戰略要地 ](/zh/news/2013/12/21/敘利亞反對派透過卡車自殺炸彈攻擊阿勒頗內的艾肯迪-Al-Kindi-醫院-趁勢奪回戰略要地.md) _消息: 敘利亞_
-5. [ 國際特赦組織批評歐盟協助敘利亞難民不利 ](/zh/news/2013/12/13/國際特赦組織批評歐盟協助敘利亞難民不利.md) _消息: 敘利亞_
-6. [ 據報自由敘利亞軍的最高指揮官薩利姆·伊德里斯 Idris因為其指揮中心被伊斯蘭前進軍 Front (Syria)攻下，已向敘利亞政府投降 ](/zh/news/2013/12/11/據報自由敘利亞軍的最高指揮官薩利姆-伊德里斯-Idris因為其指揮中心被伊斯蘭前進軍-Front-Syria-攻下.md) _消息: 敘利亞_
-7. [ 敘利亞南部那瓦（Nawa）發生小巴士誤觸疑似由敘利亞政府軍放置的地雷意外，並且造成車上至少有21名平民遭到殺害](/zh/news/2013/10/16/敘利亞南部那瓦-Nawa-發生小巴士誤觸疑似由敘利亞政府軍放置的地雷意外-並且造成車上至少有21名平民遭到殺害.md) _消息: 敘利亞_
-8. [ 禁止化學武器組織所派遣的小組進入敘利亞調查其化學武器儲備](/zh/news/2013/10/1/禁止化學武器組織所派遣的小組進入敘利亞調查其化學武器儲備.md) _消息: 敘利亞_
-9. [ 叙利亚多个城市举行反政府示威的民众与与警察发生暴力冲突，导致至少110人死亡。](/zh/news/2011/04/22/叙利亚多个城市举行反政府示威的民众与与警察发生暴力冲突-导致至少110人死亡.md) _消息: 敘利亞_
-10. [ 敘利亞與黎巴嫩同意建立外交關係並相互派駐大使。[http:--ap.google.com-article-ALeqM5i1oFgHMwYaSyeGi0ODJNFGMvml9wD92HJHTG0 美聯社]date=十一月 2017 ](/zh/news/2008/08/14/敘利亞與黎巴嫩同意建立外交關係並相互派駐大使-http-apgooglecom-article-ALeqM5.md) _消息: 敘利亞_

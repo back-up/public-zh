@@ -1,6 +1,6 @@
 ### [2007-09-3](/news/2007/09/3/index.md)
 
-##### 冒险家
+##### 
 # 美富豪冒险家史蒂夫·福塞特（Steve Fossett）驾驶一架单引擎飞机短途飞行时失踪。
 
 A search was under way in the mountainous terrain of western Nevada for James Stephen “Steve” Fossett.

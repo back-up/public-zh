@@ -1,6 +1,6 @@
 ### [2007-06-1](/news/2007/06/1/index.md)
 
-##### 关于化学品注册、评估、许可和限制法案
+##### 
 # 欧盟《关于化学品注册、评估、许可和限制法案》（en, Evaluation, Authorisation and Restriction of Chemicals）生效。
 
 

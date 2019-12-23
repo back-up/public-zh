@@ -1,6 +1,6 @@
 ### [2015-07-13](/news/2015/07/13/index.md)
 
-##### LHCb
+##### 
 # LHCb實驗的科學家宣佈發現五夸克態粒子。 
 
 Scientists at the Large Hadron Collider have announced the discovery of a new particle called the pentaquark.

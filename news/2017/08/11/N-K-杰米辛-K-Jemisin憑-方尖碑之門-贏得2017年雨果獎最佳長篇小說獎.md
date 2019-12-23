@@ -1,6 +1,6 @@
 ### [2017-08-11](/news/2017/08/11/index.md)
 
-##### 雨果獎最佳長篇小說獎
+##### 
 # N·K·杰米辛. K. Jemisin憑《方尖碑之門》贏得2017年雨果獎最佳長篇小說獎。 
 
 The Obelisk is headline winner in a year marked by diminished presence of conservative Sad Puppy lobby and strong showing from women

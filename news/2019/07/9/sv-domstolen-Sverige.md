@@ -1,6 +1,6 @@
 ### [2019-07-9](/news/2019/07/9/index.md)
 
-##### 喬建軍
+##### 
 # sv domstolen (Sverige) 
 
 
